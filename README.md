@@ -52,6 +52,9 @@
 - [My Silver Lining](https://www.youtube.com/watch?v=DKL4X0PZz7M)
 - [Shame](https://www.youtube.com/watch?v=bDdXe51yphI)
 
+## Georgie Satellites
+- [Keep Your Hands To Yourself](https://www.youtube.com/watch?v=0r7Pbb4ndvI)
+
 ## Gotye
 - [Somebody That I Used To Know](https://www.youtube.com/watch?v=8UVNT4wvIGY)
 
@@ -119,9 +122,17 @@
 
 ## The Lumineers
 
+## The Traveling Wilburys
+- [End Of The Line](https://www.youtube.com/watch?v=UMVjToYOjbM)
+- [Handle With Care](https://www.youtube.com/watch?v=1o4s1KVJaVA)
+
 ## The White Stripes
 - [Hardest button to button](https://www.youtube.com/watch?v=K4dx42YzQCE)
 - [Seven Nation army](https://www.youtube.com/watch?v=0J2QdDbelmY)
+
+## Tom Petty
+- []()
+- []()
 
 ## Tracy Chapman
 - [Baby Can I Hold You](https://www.youtube.com/watch?v=DqoLMGSBGYc)
@@ -133,3 +144,6 @@
 
 ## Xavier Rudd
 - [Follow The Sun](https://www.youtube.com/watch?v=0E1bNmyPWww)
+- [Let me be](https://www.youtube.com/watch?v=PHFzLR7wJUI)
+- [Spirit Bird](https://www.youtube.com/watch?v=T6NFckh8K9k)
+- [Walk Away](https://www.youtube.com/watch?v=7GQvdgT6Eh0)
