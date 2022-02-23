@@ -2,6 +2,15 @@
 
 ## AC/DC
 
+## Alice Phoebe Lou
+- [Berlin Blues](https://www.youtube.com/watch?v=qPvxqKAOE4k)
+- [Grey](https://www.youtube.com/watch?v=DluS-5m0d8E)
+- [Ocean | Mahogany Session](https://www.youtube.com/watch?v=SZo0UYm13TE)
+- [Orbit (Live Session)](https://www.youtube.com/watch?v=BspiVgfaJR8&list=RDGMEMc6JZQrQ__ROET3gGdz-Trw&start_radio=1)
+- [She](https://www.youtube.com/watch?v=d7Pt9ul_E_I)
+- [She (Live)](https://www.youtube.com/watch?v=NPH9j0qVM3A)
+- [Walk on the wild side (Lou Reed Cover)](https://www.youtube.com/watch?v=WVBfmOYvTiI)
+
 ## Band Of Horses
 - [The funeral](https://www.youtube.com/watch?v=E1ZPPc9DJbs)
 
@@ -28,6 +37,10 @@
 
 ## Deep Purple
 - [Child In Time - Live (1970)](https://www.youtube.com/watch?v=OorZcOzNcgE)
+
+## Dire Straits
+
+## Elvis Presley
 
 ## Europe
 - [The Final Countdown](https://www.youtube.com/watch?v=9jK-NcRmVcw)
@@ -117,3 +130,6 @@
 
 ## U2
 - [I Still Haven't Found What I'm Looking For](https://www.youtube.com/watch?v=e3-5YC_oHjE)
+
+## Xavier Rudd
+- [Follow The Sun](https://www.youtube.com/watch?v=0E1bNmyPWww)
