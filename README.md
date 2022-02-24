@@ -7,6 +7,7 @@
 
 ## Alice Phoebe Lou
 - [Berlin Blues](https://www.youtube.com/watch?v=qPvxqKAOE4k)
+- [Bongo Bong (Manu Chao cover)](https://www.youtube.com/watch?v=grZGX2jqIT0)
 - [Grey](https://www.youtube.com/watch?v=DluS-5m0d8E)
 - [Ocean | Mahogany Session](https://www.youtube.com/watch?v=SZo0UYm13TE)
 - [Orbit (Live Session)](https://www.youtube.com/watch?v=BspiVgfaJR8&list=RDGMEMc6JZQrQ__ROET3gGdz-Trw&start_radio=1)
@@ -164,6 +165,7 @@
 - [Home](https://www.youtube.com/watch?v=ZAYZmIfHEiU)
 - [The wrong direction](https://www.youtube.com/watch?v=VvRVu78IHHo)
 - [The simple song](https://www.youtube.com/watch?v=6SjslBAJkJI)
+- [Thunder and Lightning](https://www.youtube.com/watch?v=tL2gxFoUZuE)
 - [When we were young](https://www.youtube.com/watch?v=hef9UEHQisY)
 
 ## Playing For Change
