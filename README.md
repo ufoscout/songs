@@ -15,6 +15,9 @@
 - [She (Live)](https://www.youtube.com/watch?v=NPH9j0qVM3A)
 - [Walk on the wild side (Lou Reed Cover)](https://www.youtube.com/watch?v=WVBfmOYvTiI)
 
+## Audioslave
+- [Like a stone](https://www.youtube.com/watch?v=7QU1nvuxaMA)
+
 ## Band Of Horses
 - [The funeral](https://www.youtube.com/watch?v=E1ZPPc9DJbs)
 
@@ -113,6 +116,10 @@
 ## Israel Kamakawiwo'ole
 - [Somewhere over the rainbow](https://www.youtube.com/watch?v=V1bFr2SWP1I)
 
+## Jack Johnson
+- [I got you](https://www.youtube.com/watch?v=dBWFUVq85gs)
+- [Upside Down](https://www.youtube.com/watch?v=dqUdI4AIDF0)
+
 ## Jeff Buckley
 - [Hallelujah](https://www.youtube.com/watch?v=y8AWFf7EAc4)
 
@@ -175,6 +182,10 @@
 ## Playing For Change
 - [Sittin' On The Dock Of The Bay (Otis Redding Cover)](https://www.youtube.com/watch?v=Es3Vsfzdr14)
 - [Stand By Me](https://www.youtube.com/watch?v=Us-TVg40ExM)
+
+## Pearl Jam
+- [Alive](https://www.youtube.com/watch?v=qM0zINtulhM)
+- [Just Breathe](https://www.youtube.com/watch?v=XTb9GNIxpMk)
 
 ## **QUEEN**
 - [Bohemian Rhapsody](https://www.youtube.com/watch?v=fJ9rUzIMcZQ)
