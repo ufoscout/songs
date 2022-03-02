@@ -4,7 +4,11 @@
 - [What's Up](https://www.youtube.com/watch?v=6NXnxTNIWkc)
 
 ## AC/DC
+- [Highway to Hell (Live at River Plate, 2009)](https://www.youtube.com/watch?v=gEPmA3USJdI)
 - [You Shook Me All Night Long](https://www.youtube.com/watch?v=Lo2qQmj0_h4)
+
+## a-ha
+- [Take On Me](https://www.youtube.com/watch?v=djV11Xbc914)
 
 ## Alice Phoebe Lou
 - [Berlin Blues](https://www.youtube.com/watch?v=qPvxqKAOE4k)
@@ -37,6 +41,9 @@
 - [Is This Love](https://www.youtube.com/watch?v=69RdQFDuYPI)
 - [No Woman, No Cry](https://www.youtube.com/watch?v=IT8XvzIfi4U)
 - [Three Little Birds](https://www.youtube.com/watch?v=HNBCVM4KbUM)
+
+## Bobby McFerrin
+- [Don't Worry Be Happy](https://www.youtube.com/watch?v=d-diB65scQU)
 
 ## Bon Jovi
 - [Livin' On A Prayer](https://www.youtube.com/watch?v=lDK9QqIzhwk)
@@ -91,6 +98,9 @@
 
 ## Enya
 - [Caribbean Blue](https://www.youtube.com/watch?v=Jl8iYAo90pE)
+
+## Earth, Wind & Fire
+- [September](https://www.youtube.com/watch?v=Gs069dndIYk)
 
 ## Eurythmics
 - [Sweet Dreams (Are Made Of This)](https://www.youtube.com/watch?v=qeMFqkcPYcg)
@@ -156,9 +166,15 @@
 ## Johnny Cash
 - [Hurt](https://www.youtube.com/watch?v=8AHCfZTRGiI)
 
+## Journey
+- [Don't Stop Believin'](https://www.youtube.com/watch?v=1k8craCGpgs)
+
 ## Kansas
 - [Carry on Wayward Son](https://www.youtube.com/watch?v=P5ZJui3aPoQ)
 - [Dust in the Wind](https://www.youtube.com/watch?v=tH2w6Oxx0kQ)
+
+## Kool & The Gang
+- [Celebration](https://www.youtube.com/watch?v=3GwjfUFyY6M)
 
 ## Led Zeppelin
 
@@ -223,7 +239,13 @@
 - [Stand By Me](https://www.youtube.com/watch?v=Us-TVg40ExM)
 
 ## **QUEEN**
+- [Another One Bites the Dust](https://www.youtube.com/watch?v=rY0WxgSXdEE)
 - [Bohemian Rhapsody](https://www.youtube.com/watch?v=fJ9rUzIMcZQ)
+- [Hammer To Fall](https://www.youtube.com/watch?v=JU5LMG3WFBw)
+- [Somebody To Love](https://www.youtube.com/watch?v=kijpcUv-b8M)
+- [The Show Must Go On](https://www.youtube.com/watch?v=t99KH0TR-J4)
+- [We Are The Champions (Live)](https://www.youtube.com/watch?v=KXw8CRapg7k)
+- [We Will Rock You](https://www.youtube.com/watch?v=-tJYN-eG1zk)
 
 ## R.E.M.
 - [Everybody Hurts](https://www.youtube.com/watch?v=5rOiW_xY-kc)
@@ -251,6 +273,9 @@
 ## The Beatles
 
 ## The Cranberries
+
+## The Knack
+- [My Sharona](https://www.youtube.com/watch?v=bbr60I0u2Ng)
 
 ## The Lumineers
 
@@ -302,6 +327,9 @@
 
 ## U2
 - [I Still Haven't Found What I'm Looking For](https://www.youtube.com/watch?v=e3-5YC_oHjE)
+
+## Van Halen
+- [Jump](https://www.youtube.com/watch?v=SwYN7mTi6HM)
 
 ## Vangelis
 - [Chariots Of Fire](https://www.youtube.com/watch?v=8a-HfNE3EIo)
