@@ -4,6 +4,7 @@
 - [What's Up](https://www.youtube.com/watch?v=6NXnxTNIWkc)
 
 ## AC/DC
+- [You Shook Me All Night Long](https://www.youtube.com/watch?v=Lo2qQmj0_h4)
 
 ## Alice Phoebe Lou
 - [Berlin Blues](https://www.youtube.com/watch?v=qPvxqKAOE4k)
@@ -28,6 +29,18 @@
 ## Billy Joel
 - [Uptown Girl](https://www.youtube.com/watch?v=hCuMWrfXG4E)
 
+## Bill Withers
+- [Ain't No Sunshine](https://www.youtube.com/watch?v=CICIOJqEb5c)
+- [Lean on me](https://www.youtube.com/watch?v=fOZ-MySzAac)
+
+## Bob Marley & The Wailers
+- [Is This Love](https://www.youtube.com/watch?v=69RdQFDuYPI)
+- [No Woman, No Cry](https://www.youtube.com/watch?v=IT8XvzIfi4U)
+- [Three Little Birds](https://www.youtube.com/watch?v=HNBCVM4KbUM)
+
+## Bon Jovi
+- [Livin' On A Prayer](https://www.youtube.com/watch?v=lDK9QqIzhwk)
+
 ## Bronski Beat
 - [Smalltown Boy](https://www.youtube.com/watch?v=88sARuFu-tc)
 
@@ -37,6 +50,16 @@
 - [Glory Days](https://www.youtube.com/watch?v=6vQpW9XRiyM)
 - [I'm On Fire](https://www.youtube.com/watch?v=lrpXArn3hII)
 - [Streets of Philadelphia](https://www.youtube.com/watch?v=4z2DtNW79sQ)
+
+## Bryan Adams
+- [Summer Of ’69](https://www.youtube.com/watch?v=9f06QZCVUHg)
+
+## Chuck Berry
+- [Johnny B. Goode](https://www.youtube.com/watch?v=Uf4rxCB4lys)
+- [My Ding-a-Ling (live)](https://www.youtube.com/watch?v=hMddte6yD2w)
+- [Roll Over Beethoven](https://www.youtube.com/watch?v=o3CAAcndhlM)
+- [Roll Over Beethoven (live)](https://www.youtube.com/watch?v=LvcROx4cxng)
+- [You never can tell](https://www.youtube.com/watch?v=Vq_-6frUQ2g)
 
 ## Cyndi Lauper
 - [Girls Just Want To Have Fun](https://www.youtube.com/watch?v=PIb6AZdTr-A)
@@ -123,6 +146,9 @@
 ## Jeff Buckley
 - [Hallelujah](https://www.youtube.com/watch?v=y8AWFf7EAc4)
 
+## Jet
+- [Are You Gonna Be My Girl](https://www.youtube.com/watch?v=tuK6n2Lkza0)
+
 ## John Mellencamp
 - [Hurts So Good](https://www.youtube.com/watch?v=4dOsbsuhYGQ)
 - [Jack & Diane](https://www.youtube.com/watch?v=h04CH9YZcpI)
@@ -137,6 +163,12 @@
 ## Led Zeppelin
 
 ## Litfiba
+
+## Little Richard
+- [Good Golly Miss Molly](https://www.youtube.com/watch?v=QTDhQ2QECqE)
+- [Lucille](https://www.youtube.com/watch?v=K4fNqoHzeO4)
+- [Lucille (live 1957)](https://www.youtube.com/watch?v=u0Ujb6lJ_mM)
+- [Tutti frutti](https://www.youtube.com/watch?v=LO9kNFf3kRg)
 
 ## Liz Phair
 - [Hey Lou](https://www.youtube.com/watch?v=K4LcFHMjH9k)
@@ -179,13 +211,16 @@
 - [Thunder and Lightning](https://www.youtube.com/watch?v=tL2gxFoUZuE)
 - [When we were young](https://www.youtube.com/watch?v=hef9UEHQisY)
 
-## Playing For Change
-- [Sittin' On The Dock Of The Bay (Otis Redding Cover)](https://www.youtube.com/watch?v=Es3Vsfzdr14)
-- [Stand By Me](https://www.youtube.com/watch?v=Us-TVg40ExM)
-
 ## Pearl Jam
 - [Alive](https://www.youtube.com/watch?v=qM0zINtulhM)
 - [Just Breathe](https://www.youtube.com/watch?v=XTb9GNIxpMk)
+
+## Pharrell Williams
+- [Happy](https://www.youtube.com/watch?v=ZbZSe6N_BXs)
+
+## Playing For Change
+- [Sittin' On The Dock Of The Bay (Otis Redding Cover)](https://www.youtube.com/watch?v=Es3Vsfzdr14)
+- [Stand By Me](https://www.youtube.com/watch?v=Us-TVg40ExM)
 
 ## **QUEEN**
 - [Bohemian Rhapsody](https://www.youtube.com/watch?v=fJ9rUzIMcZQ)
@@ -270,6 +305,12 @@
 
 ## Vangelis
 - [Chariots Of Fire](https://www.youtube.com/watch?v=8a-HfNE3EIo)
+
+## Wham
+- [Wake Me Up Before You Go-Go](https://www.youtube.com/watch?v=pIgZ7gMze7A)
+
+## Whitney Houston
+- [I Wanna Dance With Somebody](https://www.youtube.com/watch?v=eH3giaIzONA)
 
 ## Xavier Rudd
 - [Follow The Sun](https://www.youtube.com/watch?v=0E1bNmyPWww)
