@@ -4,8 +4,28 @@
 - [What's Up](https://www.youtube.com/watch?v=6NXnxTNIWkc)
 
 ## AC/DC
+- [Back In Black](https://www.youtube.com/watch?v=pAgnJDJN4VA)
+- [Back In Black (Live at River Plate, 2009)](https://www.youtube.com/watch?v=j5rGm3kdTuk)
+- [Big Gun](https://www.youtube.com/watch?v=nLsXJitaiVo)
+- [Dirty Deeds Done Dirt Cheap (Live at River Plate, 2009)](https://www.youtube.com/watch?v=whQQpwwvSh4)
+- [Hard as a rock](https://www.youtube.com/watch?v=X9s_CQx4ylU)
+- [Hell's Bells](https://www.youtube.com/watch?v=etAIpkdhU9Q)
+- [Highway to Hell](https://www.youtube.com/watch?v=l482T0yNkeo)
 - [Highway to Hell (Live at River Plate, 2009)](https://www.youtube.com/watch?v=gEPmA3USJdI)
+- [Jailbreak](https://www.youtube.com/watch?v=g8xScxmekQk)
+- [Let there be rock](https://www.youtube.com/watch?v=3f2g4RMfhS0)
+- [Let there be rock (Live with Bon Scott, 1978)](https://www.youtube.com/watch?v=s3nEAmt5AZ8)
+- [Let there be rock (Live at River Plate, 2009)](https://www.youtube.com/watch?v=O24AipZ-buQ)
+- [Rock N Roll Train](https://www.youtube.com/watch?v=FrFvNphZ5BQ)
+- [Rock N Roll Train (Live at River Plate, 2009)](https://www.youtube.com/watch?v=RHpClGAAvpg)
+- [Safe In New York City](https://www.youtube.com/watch?v=JTDZ5O5lH_0)
+- [Thunderstruck](https://www.youtube.com/watch?v=v2AC41dglnM)
+- [Thunderstruck (Live at River Plate, 2009)](https://www.youtube.com/watch?v=n_GFN3a0yj0)
+- [T.N.T. (Live at River Plate, 2009)](https://www.youtube.com/watch?v=44XYEeD1A1U)
+- [Who made who](https://www.youtube.com/watch?v=PiZHNw1MtzI)
+- [Whole Lotta Rosie (Live at River Plate, 2009)](https://www.youtube.com/watch?v=QMvE0yFnR0I)
 - [You Shook Me All Night Long](https://www.youtube.com/watch?v=Lo2qQmj0_h4)
+- [You Shook Me All Night Long (Live at River Plate, 2009)](https://www.youtube.com/watch?v=zakKvbIQ28o)
 
 ## a-ha
 - [Take On Me](https://www.youtube.com/watch?v=djV11Xbc914)
@@ -81,6 +101,9 @@
 ## David Bowie
 - [Heroes (Live)](https://www.youtube.com/watch?v=bsYp9q3QNaQ)
 
+## Def Leppard
+- [Pour Some Sugar On Me](https://www.youtube.com/watch?v=Rqs4cMyMLnY)
+
 ## Deep Purple
 - [Child In Time - Live (1970)](https://www.youtube.com/watch?v=OorZcOzNcgE)
 
@@ -126,6 +149,10 @@
 - [Budapest](https://www.youtube.com/watch?v=VHrLPs3_1Fs)
 - [Listen to the Man](https://www.youtube.com/watch?v=ZS0WvzRVByg&list=RDMM&start_radio=1)
 
+## George Thorogood & The Destroyers
+- [Bad to the bone](https://www.youtube.com/watch?v=nqgUG_JVzCs)
+- [Bad to the bone (live)](https://www.youtube.com/watch?v=dt_8aDOJvtM)
+
 ## Georgie Satellites
 - [Keep Your Hands To Yourself](https://www.youtube.com/watch?v=0r7Pbb4ndvI)
 
@@ -146,6 +173,11 @@
 - [Don't Cry](https://www.youtube.com/watch?v=zRIbf6JqkNc)
 - [November Rain](https://www.youtube.com/watch?v=8SbUC-UaAxE)
 
+## Heart 
+- [All I Wanna Do Is Make Love To You](https://www.youtube.com/watch?v=OAfxs0IDeMs)
+- [Alone](https://www.youtube.com/watch?v=1Cw1ng75KP0)
+- [Barracuda](https://www.youtube.com/watch?v=PeMvMNpvB5M)
+
 ## Israel Kamakawiwo'ole
 - [Somewhere over the rainbow](https://www.youtube.com/watch?v=V1bFr2SWP1I)
 
@@ -158,6 +190,10 @@
 
 ## Jet
 - [Are You Gonna Be My Girl](https://www.youtube.com/watch?v=tuK6n2Lkza0)
+
+## Joan Jett and the Blackhearts
+- [I love Rock'n roll](https://www.youtube.com/watch?v=d9jhDwxt22Y)
+- [I Hate Myself for Loving You](https://www.youtube.com/watch?v=bpNw7jYkbVc)
 
 ## John Mellencamp
 - [Hurts So Good](https://www.youtube.com/watch?v=4dOsbsuhYGQ)
@@ -188,6 +224,9 @@
 
 ## Liz Phair
 - [Hey Lou](https://www.youtube.com/watch?v=K4LcFHMjH9k)
+
+## Lynyrd Skynyrd
+
 
 ## M83
 - [Wait](https://www.youtube.com/watch?v=lAwYodrBr2Q)
@@ -239,11 +278,34 @@
 - [Stand By Me](https://www.youtube.com/watch?v=Us-TVg40ExM)
 
 ## **QUEEN**
+- [A Kind of Magic](https://www.youtube.com/watch?v=0p_1QSUsbsM)
+- [A Kind Of Magic (Live At Wembley Stadium, Friday 11 July 1986)](https://www.youtube.com/watch?v=c2_xWTSyCuU)
 - [Another One Bites the Dust](https://www.youtube.com/watch?v=rY0WxgSXdEE)
 - [Bohemian Rhapsody](https://www.youtube.com/watch?v=fJ9rUzIMcZQ)
+- [Crazy Little Thing Called Love](https://www.youtube.com/watch?v=zO6D_BAuYCI)
+- [Don't stop me now](https://www.youtube.com/watch?v=HgzGwKwLmgM)
+- [Good Old Fashioned Lover Boy](https://www.youtube.com/watch?v=PI3LAgGBxqU)
 - [Hammer To Fall](https://www.youtube.com/watch?v=JU5LMG3WFBw)
+- [Headlong](https://www.youtube.com/watch?v=zhyaAPsT1LU)
+- [I Want It All](https://www.youtube.com/watch?v=hFDcoX7s6rE)
+- [I Want To Break Free](https://www.youtube.com/watch?v=f4Mc-NYPHaQ)
+- [I'm Going Slightly Mad](https://www.youtube.com/watch?v=Od6hY_50Dh0)
+- [It's A Hard Life](https://www.youtube.com/watch?v=uHP-qgzUVLM)
+- [Keep Yourself Alive](https://www.youtube.com/watch?v=JofwEB9g1zg)
+- [Love of my life](https://www.youtube.com/watch?v=sUJkCXE4sAA)
+- [Love Of My Life (Live Rock Montreal 1981)](https://www.youtube.com/watch?v=SVPm5lgox78)
+- [Love Of My Life (Live Wembley 1986)](https://www.youtube.com/watch?v=v3xwCkhmies)
+- [No One But You (Only The Good Die Young)](https://www.youtube.com/watch?v=oLKyaOLb2Fs)
+- [Princes Of The Universe](https://www.youtube.com/watch?v=VEJ8lpCQbyw)
+- [Radio Ga Ga](https://www.youtube.com/watch?v=azdwsXLmrHE)
+- [Save Me](https://www.youtube.com/watch?v=Iw3izcZd9zU)
 - [Somebody To Love](https://www.youtube.com/watch?v=kijpcUv-b8M)
+- [The Invisible Man](https://www.youtube.com/watch?v=zKdxd718WXg)
+- [The Miracle](https://www.youtube.com/watch?v=2DaY8-Mui0I)
 - [The Show Must Go On](https://www.youtube.com/watch?v=t99KH0TR-J4)
+- [These Are The Days Of Our Lives](https://www.youtube.com/watch?v=oB4K0scMysc)
+- [Too Much Love Will Kill You](https://www.youtube.com/watch?v=ivbO3s1udic)
+- [Under Pressure](https://www.youtube.com/watch?v=a01QQZyl-_I)
 - [We Are The Champions (Live)](https://www.youtube.com/watch?v=KXw8CRapg7k)
 - [We Will Rock You](https://www.youtube.com/watch?v=-tJYN-eG1zk)
 
@@ -263,6 +325,13 @@
 - [The Boxer (from The Concert in Central Park)](https://www.youtube.com/watch?v=6JUbFj0BIc4)
 - [The Sound of Silence (from The Concert in Central Park)](https://www.youtube.com/watch?v=NAEppFUWLfc)
 
+## Steppenwolf
+- [Born To Be Wild](https://www.youtube.com/watch?v=93fAJe8WVjA)
+
+## Steve Harley And Cockney Rebel
+- [Make Me Smile](https://www.youtube.com/watch?v=9pzJE3eP7S8)
+- [Make Me Smile (Come Up And See Me) (TV live)](https://www.youtube.com/watch?v=DJ4QoCskBN4)
+
 ## Sting
 - [Fields Of Gold](https://www.youtube.com/watch?v=KLVq0IAzh1A)
 
@@ -270,9 +339,24 @@
 - [Burning Heart](https://www.youtube.com/watch?v=Kc71KZG87X4)
 - [Eye Of The Tiger](https://www.youtube.com/watch?v=btPJPFnesV4)
 
+## Sweet
+- [Ballroom Blitz](https://www.youtube.com/watch?v=mPQPdYttl7U)
+
+## T.Rex 
+- [20th Century Boy](https://www.youtube.com/watch?v=8v2P_tOHsps)
+- [Get It On](https://www.youtube.com/watch?v=cp1m4B3HRhg)
+
 ## The Beatles
 
 ## The Cranberries
+
+## The Doors
+- [Break on Through](https://www.youtube.com/watch?v=NFeUko-lQHg)
+- [Light my fire](https://www.youtube.com/watch?v=mbj1RFaoyLk)
+- [Riders on the storm](https://www.youtube.com/watch?v=iv8GW1GaoIc)
+- [Roadhouse Blues](https://www.youtube.com/watch?v=yV9DJwJKWMw)
+- [Roadhouse Blues (live)](https://www.youtube.com/watch?v=kE32pvvaDT8)
+- [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
 
 ## The Knack
 - [My Sharona](https://www.youtube.com/watch?v=bbr60I0u2Ng)
@@ -310,6 +394,9 @@
 - [Into The Great Wide Open](https://www.youtube.com/watch?v=xqmFxgEGKH0)
 - [Learning To Fly](https://www.youtube.com/watch?v=s5BJXwNeKsQ)
 
+## Tommy James & The Shondells
+- [Crimson and Clover](https://www.youtube.com/watch?v=GpGEeneO-t0)
+
 ## Toto
 - [Hold The Line](https://www.youtube.com/watch?v=htgr3pvBr-I)
  
@@ -345,3 +432,6 @@
 - [Let me be](https://www.youtube.com/watch?v=PHFzLR7wJUI)
 - [Spirit Bird](https://www.youtube.com/watch?v=T6NFckh8K9k)
 - [Walk Away](https://www.youtube.com/watch?v=7GQvdgT6Eh0)
+
+## ZZ Top
+- [La Grange](https://www.youtube.com/watch?v=FJaaWz-AJd0)
