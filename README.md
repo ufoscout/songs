@@ -79,6 +79,10 @@
 - [Streets of Philadelphia](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 
 ## Bryan Adams
+- [Have You Ever Really Loved A Woman?](https://www.youtube.com/watch?v=hq2KgzKETBw)
+- [Heaven](https://www.youtube.com/watch?v=s6TtwR2Dbjg)
+- [Please Forgive Me](https://www.youtube.com/watch?v=9EHAo6rEuas)
+- [So Happy It Hurts](https://www.youtube.com/watch?v=d0caIWs0O9c)
 - [Summer Of ’69](https://www.youtube.com/watch?v=9f06QZCVUHg)
 
 ## Chuck Berry
@@ -134,6 +138,9 @@
 ## Evanescence
 - [Bring Me To Life](https://www.youtube.com/watch?v=3YxaaGgTQYM)
 
+## Extreme
+- [More Than Words](https://www.youtube.com/watch?v=UrIiLvg58SY)
+
 ## Fauve
 - [Haut le coeurs](https://www.youtube.com/watch?v=etmSWkeRYbk)
 
@@ -143,11 +150,17 @@
 
 ## Five Finger Death Punch
 - [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
- 
+
+## Gary Moore
+- [Parisienne Walkways (Live)](https://www.youtube.com/watch?v=vkUpfw4Hf3w)
+
 ## George Ezra
 - [Blame It on Me](https://www.youtube.com/watch?v=H4ifSrE8iSg)
 - [Budapest](https://www.youtube.com/watch?v=VHrLPs3_1Fs)
 - [Listen to the Man](https://www.youtube.com/watch?v=ZS0WvzRVByg&list=RDMM&start_radio=1)
+
+## George Michael
+- [Careless Whisper](https://www.youtube.com/watch?v=izGwDsrQ1eQ)
 
 ## George Thorogood & The Destroyers
 - [Bad to the bone](https://www.youtube.com/watch?v=nqgUG_JVzCs)
@@ -236,6 +249,10 @@
 
 ## Max Gazzè
 - [Sotto casa](https://www.youtube.com/watch?v=Ej0ME8xdiF8)
+
+## Meat Loaf
+- [Bat Out of Hell](https://www.youtube.com/watch?v=3QGMCSCFoKA)
+- [I'd Do Anything For Love (But I Won't Do That)](https://www.youtube.com/watch?v=9X_ViIPA-Gc)
 
 ## Men At Work
 - [Down Under](https://www.youtube.com/watch?v=XfR9iY5y94s)
