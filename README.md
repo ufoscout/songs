@@ -57,6 +57,14 @@
 - [Ain't No Sunshine](https://www.youtube.com/watch?v=CICIOJqEb5c)
 - [Lean on me](https://www.youtube.com/watch?v=fOZ-MySzAac)
 
+## Blondie
+- [Call Me](https://www.youtube.com/watch?v=StKVS0eI85I)
+- [Heart of Glass](https://www.youtube.com/watch?v=WGU_4-5RaxU)
+- [Maria](https://www.youtube.com/watch?v=VoOG7LEyUJ0)
+- [One way or another (audio)](https://www.youtube.com/watch?v=_zBwRDEFMRY)
+- [One way or another (Top of the Pop)](https://www.youtube.com/watch?v=FIXIsYWS8CA)
+- [Maria (Official Video)](https://www.youtube.com/watch?v=abw49k3rIN0)
+
 ## Bob Marley & The Wailers
 - [Is This Love](https://www.youtube.com/watch?v=69RdQFDuYPI)
 - [No Woman, No Cry](https://www.youtube.com/watch?v=IT8XvzIfi4U)
@@ -103,6 +111,7 @@
 - [Karma Chameleon](https://www.youtube.com/watch?v=JmcA9LIIXWw)
 
 ## David Bowie
+- [Heroes](https://www.youtube.com/watch?v=lXgkuM2NhYI)
 - [Heroes (Live)](https://www.youtube.com/watch?v=bsYp9q3QNaQ)
 
 ## Def Leppard
@@ -184,6 +193,7 @@
 
 ## Guns N' Roses
 - [Don't Cry](https://www.youtube.com/watch?v=zRIbf6JqkNc)
+- [Knockin' on Heaven's door](https://www.youtube.com/watch?v=f8OHybVhQwc)
 - [November Rain](https://www.youtube.com/watch?v=8SbUC-UaAxE)
 
 ## Heart 
@@ -226,6 +236,7 @@
 - [Celebration](https://www.youtube.com/watch?v=3GwjfUFyY6M)
 
 ## Led Zeppelin
+- [Thank you](https://www.youtube.com/watch?v=12KbOAc8vmk)
 
 ## Litfiba
 
@@ -367,6 +378,7 @@
 - [Get It On](https://www.youtube.com/watch?v=cp1m4B3HRhg)
 
 ## The Beatles
+- [Don't let me down](https://www.youtube.com/watch?v=NCtzkaL2t_Y)
 
 ## The Cranberries
 
@@ -395,7 +407,21 @@
 
 ## The Proclaimers
 - [I'm Gonna Be (500 Miles)](https://www.youtube.com/watch?v=tbNlMtqrYS0)
- 
+
+## The Rolling Stones
+- [Angie](https://www.youtube.com/watch?v=RcZn2-bGXqQ)
+- [(I Can't Get No) Satisfaction (Live on The Ed Sullivan Show)](https://www.youtube.com/watch?v=1ANhU4AcK04)
+- [It's only Rock'n Roll but I like it](https://www.youtube.com/watch?v=JGaBlygm0UY)
+- [Like A Rolling Stone](https://www.youtube.com/watch?v=aRYokc3VBC4)
+- [Paint it black](https://www.youtube.com/watch?v=O4irXQhgMqg)
+- [Paint it black (Live)](https://www.youtube.com/watch?v=50u9bxRwBJI)
+- [Start Me Up](https://www.youtube.com/watch?v=SGyOaCXr8Lw)
+- [Sympathy For The Devil (Live)](https://www.youtube.com/watch?v=ZRXGsPBUV5g)
+- [You Can't Always Get What You Want](https://www.youtube.com/watch?v=Ef9QnZVpVd8)
+- [You Can't Always Get What You Want (Live)](https://www.youtube.com/watch?v=oqMl5CRoFdk)
+- [Wild Horses (Live)](https://www.youtube.com/watch?v=Xb3fZmkzy84)
+
+
 ## The Traveling Wilburys
 - [End Of The Line](https://www.youtube.com/watch?v=UMVjToYOjbM)
 - [Handle With Care](https://www.youtube.com/watch?v=1o4s1KVJaVA)
