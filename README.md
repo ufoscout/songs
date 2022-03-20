@@ -356,6 +356,13 @@
 - [The Boxer (from The Concert in Central Park)](https://www.youtube.com/watch?v=6JUbFj0BIc4)
 - [The Sound of Silence (from The Concert in Central Park)](https://www.youtube.com/watch?v=NAEppFUWLfc)
 
+## Status Quo
+- [Rockin' All Over the World (audio)](https://www.youtube.com/watch?v=fAnP2ck-7o4)
+- [Rockin' All Over the World (Live at Live Aid, Wembley Stadium, 13th July 1985)](https://www.youtube.com/watch?v=eEO6v-YiS00)
+- [Whatever You Want (audio)](https://www.youtube.com/watch?v=h72ripYMJpo)
+- [Whatever You Want](https://www.youtube.com/watch?v=_wI3tbBk1PA)
+- [Whatever You Want" (Live at Wacken 2017)](https://www.youtube.com/watch?v=PNeGc2eZzmw)
+
 ## Steppenwolf
 - [Born To Be Wild](https://www.youtube.com/watch?v=93fAJe8WVjA)
 
