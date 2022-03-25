@@ -30,6 +30,9 @@
 ## a-ha
 - [Take On Me](https://www.youtube.com/watch?v=djV11Xbc914)
 
+## Alice In Chains
+- [Man in the Box](https://www.youtube.com/watch?v=TAqZb52sgpU)
+
 ## Alice Phoebe Lou
 - [Berlin Blues](https://www.youtube.com/watch?v=qPvxqKAOE4k)
 - [Bongo Bong (Manu Chao cover)](https://www.youtube.com/watch?v=grZGX2jqIT0)
@@ -137,6 +140,9 @@
 
 ## Earth, Wind & Fire
 - [September](https://www.youtube.com/watch?v=Gs069dndIYk)
+
+## Emerson, Lake & Palmer
+- [Fanfare For The Common Man](https://www.youtube.com/watch?v=c2zurZig4L8)
 
 ## Eurythmics
 - [Sweet Dreams (Are Made Of This)](https://www.youtube.com/watch?v=qeMFqkcPYcg)
@@ -348,13 +354,25 @@
 
 ## Roy Orbison
 - [Oh, Pretty Woman](https://www.youtube.com/watch?v=_PLq0_7k1jk)
-- 
+
+## Rush
+- [Tom Sawyer](https://www.youtube.com/watch?v=auLBLk4ibAk)
+
 ## Scorpions
 - [Wind Of Change](https://www.youtube.com/watch?v=n4RjJKxsamQ)
 
 ## Simon and Garfunkel
 - [The Boxer (from The Concert in Central Park)](https://www.youtube.com/watch?v=6JUbFj0BIc4)
 - [The Sound of Silence (from The Concert in Central Park)](https://www.youtube.com/watch?v=NAEppFUWLfc)
+
+## Slade
+- [Far Far Away (audio)](https://www.youtube.com/watch?v=G76pMAgNZNI)
+- [Far Far Away (live)](https://www.youtube.com/watch?v=6gqCCAb8xbw)
+- [Look Wot You Dun (audio)](https://www.youtube.com/watch?v=bPVWdu3_a2g)
+- [Rock And Roll Preacher (audio)](https://www.youtube.com/watch?v=f5DLIlDn3p4)
+- [Run Runaway](https://www.youtube.com/watch?v=Hr-v2EpIwr8)
+- [Slade Cum On Feel The Noize (audio)](https://www.youtube.com/watch?v=uTEGxVDHpGU)
+- [Slade Cum On Feel The Noize (live)](https://www.youtube.com/watch?v=Qu_ozjAu_vM)
 
 ## Status Quo
 - [Rockin' All Over the World (audio)](https://www.youtube.com/watch?v=fAnP2ck-7o4)
@@ -378,7 +396,15 @@
 - [Eye Of The Tiger](https://www.youtube.com/watch?v=btPJPFnesV4)
 
 ## Sweet
-- [Ballroom Blitz](https://www.youtube.com/watch?v=mPQPdYttl7U)
+- [Action](https://www.youtube.com/watch?v=zM0IWyQ5zcg)
+- [Ballroom Blitz (audio)](https://www.youtube.com/watch?v=mPQPdYttl7U)
+- [Ballroom Blitz (official promo)](https://www.youtube.com/watch?v=r8pYpii2Atg)
+- [Blockbuster (Top of The Pops)](https://www.youtube.com/watch?v=Y64211sjSko)
+- [Co-Co (live)](https://www.youtube.com/watch?v=cz92NkhESnc)
+- [Fox On The Run](https://www.youtube.com/watch?v=kRv7EjjwYBI)
+- [Hell Raiser](https://www.youtube.com/watch?v=7yYifj6IsUQ)
+- [Little Willy](https://www.youtube.com/watch?v=NM6I-pmV0RA)
+- [Teenage Rampage (live)](https://www.youtube.com/watch?v=AdPpQRzcSk8)
 
 ## T.Rex 
 - [20th Century Boy](https://www.youtube.com/watch?v=8v2P_tOHsps)
@@ -428,18 +454,29 @@
 - [You Can't Always Get What You Want (Live)](https://www.youtube.com/watch?v=oqMl5CRoFdk)
 - [Wild Horses (Live)](https://www.youtube.com/watch?v=Xb3fZmkzy84)
 
-
 ## The Traveling Wilburys
 - [End Of The Line](https://www.youtube.com/watch?v=UMVjToYOjbM)
 - [Handle With Care](https://www.youtube.com/watch?v=1o4s1KVJaVA)
 
+## The Verve
+- [Bitter Symphony](https://www.youtube.com/watch?v=1lyu1KKwC74)
+- [Lucky Man](https://www.youtube.com/watch?v=MH6TJU0qWoY)
+- 
 ## The White Stripes
 - [Hardest button to button](https://www.youtube.com/watch?v=K4dx42YzQCE)
 - [Seven Nation army](https://www.youtube.com/watch?v=0J2QdDbelmY)
 
-## The Verve
-- [Bitter Symphony](https://www.youtube.com/watch?v=1lyu1KKwC74)
-- [Lucky Man](https://www.youtube.com/watch?v=MH6TJU0qWoY)
+## The Who
+- [Baba O'Riley (audio)](https://www.youtube.com/watch?v=QRTNm6GLJYI)
+- [Baba O'Riley (live)](https://www.youtube.com/watch?v=Gu9HhYv0C7E)
+- [I Can't Explain](https://www.youtube.com/watch?v=h3h--K5928M)
+- [Join Together](https://www.youtube.com/watch?v=_HDMCCLlGl4)
+- [Pinball Wizard (with Elton John)](https://www.youtube.com/watch?v=DthtDjhqVOU)
+- [Substitute](https://www.youtube.com/watch?v=eswQl-hcvU0)
+- [You Better You Bet](https://www.youtube.com/watch?v=wqPlb5PLBvg)
+- [Who are you (live)](https://www.youtube.com/watch?v=PNbBDrceCy8)
+- [Won't Get Fooled Again (audio)](https://www.youtube.com/watch?v=_NzLs-xSss0)
+- [Won't Get Fooled Again (live)](https://www.youtube.com/watch?v=UDfAdHBtK_Q)
 
 ## Tom Petty And The Heartbreakers
 - [Free Fallin'](https://www.youtube.com/watch?v=1lWJXDG2i0A)
@@ -476,6 +513,9 @@
 
 ## Wham
 - [Wake Me Up Before You Go-Go](https://www.youtube.com/watch?v=pIgZ7gMze7A)
+
+## Whitesnake
+- [Sweet Talker (audio)](https://www.youtube.com/watch?v=IVvMCjaaVhM)
 
 ## Whitney Houston
 - [I Wanna Dance With Somebody](https://www.youtube.com/watch?v=eH3giaIzONA)
