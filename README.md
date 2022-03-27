@@ -44,6 +44,7 @@
 - [Walk on the wild side (Lou Reed Cover)](https://www.youtube.com/watch?v=WVBfmOYvTiI)
 
 ## Audioslave
+- [Be yourself](https://www.youtube.com/watch?v=WC5FdFlUcl0)
 - [Like a stone](https://www.youtube.com/watch?v=7QU1nvuxaMA)
 
 ## Band Of Horses
@@ -201,6 +202,10 @@
 - [Don't Cry](https://www.youtube.com/watch?v=zRIbf6JqkNc)
 - [Knockin' on Heaven's door](https://www.youtube.com/watch?v=f8OHybVhQwc)
 - [November Rain](https://www.youtube.com/watch?v=8SbUC-UaAxE)
+- [Paradise City](https://www.youtube.com/watch?v=Rbm6GXllBiw)
+- [Patience](https://www.youtube.com/watch?v=ErvgV4P6Fzc)
+- [Sweet Child O' Mine](https://www.youtube.com/watch?v=1w7OgIMMRc4)
+- [Welcome To The Jungle](https://www.youtube.com/watch?v=o1tj2zJ2Wvg)
 
 ## Heart 
 - [All I Wanna Do Is Make Love To You](https://www.youtube.com/watch?v=OAfxs0IDeMs)
@@ -373,6 +378,9 @@
 - [Run Runaway](https://www.youtube.com/watch?v=Hr-v2EpIwr8)
 - [Slade Cum On Feel The Noize (audio)](https://www.youtube.com/watch?v=uTEGxVDHpGU)
 - [Slade Cum On Feel The Noize (live)](https://www.youtube.com/watch?v=Qu_ozjAu_vM)
+
+## Soundgarden
+- [Black Hole Sun](https://www.youtube.com/watch?v=3mbBbFH9fAg)
 
 ## Status Quo
 - [Rockin' All Over the World (audio)](https://www.youtube.com/watch?v=fAnP2ck-7o4)
