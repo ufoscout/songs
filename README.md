@@ -294,6 +294,12 @@
 - [Dirty Paws](https://www.youtube.com/watch?v=mCHUw7ACS8o)
 - [Little Talks](https://www.youtube.com/watch?v=ghb6eDopW8I)
 
+## Ozzy Osbourne
+- [Crazy Train](https://www.youtube.com/watch?v=tMDFv5m18Pw)
+- [Dreamer](https://www.youtube.com/watch?v=LCCiwPEdEpg)
+- [Mama, I'm Coming Home](https://www.youtube.com/watch?v=K0siYUjV9UM)
+- [No More Tears](https://www.youtube.com/watch?v=CprfjfN5PRs)
+
 ## Passenger
 - [27](https://www.youtube.com/watch?v=l4WKh5UqtXc&list=RDMM&index=8)
 - [Golden Leaves](https://www.youtube.com/watch?v=ytmLIv4TrUs)
