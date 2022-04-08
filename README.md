@@ -191,6 +191,9 @@
 ## Gotye
 - [Somebody That I Used To Know](https://www.youtube.com/watch?v=8UVNT4wvIGY)
 
+## Green Day
+- [Basket Case](https://www.youtube.com/watch?v=NUTGr5t3MoY)
+
 ## Greta Van Fleet
 - [Highway Tune](https://www.youtube.com/watch?v=aJg4OJxp-co)
 - [When The Curtain Falls](https://www.youtube.com/watch?v=86_vnQc1oBE)
@@ -249,6 +252,9 @@
 ## Led Zeppelin
 - [Thank you](https://www.youtube.com/watch?v=12KbOAc8vmk)
 
+## Liquido
+- [Narcotic](https://www.youtube.com/watch?v=PJ7E40Ec5ec)
+
 ## Litfiba
 
 ## Little Richard
@@ -285,6 +291,10 @@
 
 ## Motörhead 
 - [Heroes (David Bowie Cover)](https://www.youtube.com/watch?v=J06yQb4lbPk)
+
+## Nickelback
+- [Burn It To The Ground](https://www.youtube.com/watch?v=q0HElo91a4s)
+- [How You Remind Me](https://www.youtube.com/watch?v=1cQh1ccqu8M)
 
 ## Nirvana
 - [Smells like teen spirit](https://www.youtube.com/watch?v=ft_DaIxrbLk)
@@ -387,6 +397,9 @@
 
 ## Soundgarden
 - [Black Hole Sun](https://www.youtube.com/watch?v=3mbBbFH9fAg)
+
+## Spin Doctors
+- [Two Princes](https://www.youtube.com/watch?v=wsdy_rct6uo)
 
 ## Status Quo
 - [Rockin' All Over the World (audio)](https://www.youtube.com/watch?v=fAnP2ck-7o4)
