@@ -553,6 +553,7 @@
 - [Follow The Sun](https://www.youtube.com/watch?v=0E1bNmyPWww)
 - [Let me be](https://www.youtube.com/watch?v=PHFzLR7wJUI)
 - [Spirit Bird](https://www.youtube.com/watch?v=T6NFckh8K9k)
+- [Stoney Creek](https://www.youtube.com/watch?v=mcDWBckYN18)
 - [Walk Away](https://www.youtube.com/watch?v=7GQvdgT6Eh0)
 
 ## ZZ Top
