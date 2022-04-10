@@ -453,6 +453,10 @@
 - [Roadhouse Blues (live)](https://www.youtube.com/watch?v=kE32pvvaDT8)
 - [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
 
+## The Kinks
+- [Lola (Audio)](https://www.youtube.com/watch?v=LemG0cvc4oU)
+- [You Really Got Me (Audio)](https://www.youtube.com/watch?v=fTTsY-oz6Go)
+
 ## The Knack
 - [My Sharona](https://www.youtube.com/watch?v=bbr60I0u2Ng)
 
