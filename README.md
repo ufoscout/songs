@@ -141,6 +141,7 @@
 
 ## Enya
 - [Caribbean Blue](https://www.youtube.com/watch?v=Jl8iYAo90pE)
+- [Only Time](https://www.youtube.com/watch?v=7wfYIMyS_dI)
 
 ## Earth, Wind & Fire
 - [September](https://www.youtube.com/watch?v=Gs069dndIYk)
@@ -454,8 +455,10 @@
 - [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
 
 ## The Kinks
-- [Lola (Audio)](https://www.youtube.com/watch?v=LemG0cvc4oU)
+- [All Day And All Of The Night](https://www.youtube.com/watch?v=fOGMRnKl5co)
+- [Lola](https://www.youtube.com/watch?v=6CzrYXcXweI)
 - [You Really Got Me (Audio)](https://www.youtube.com/watch?v=fTTsY-oz6Go)
+- [Sunny Afternoon](https://www.youtube.com/watch?v=TYIl6n_SRCI)
 
 ## The Knack
 - [My Sharona](https://www.youtube.com/watch?v=bbr60I0u2Ng)
