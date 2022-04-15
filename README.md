@@ -49,6 +49,7 @@
 ## Audioslave
 - [Be yourself](https://www.youtube.com/watch?v=WC5FdFlUcl0)
 - [Like a stone](https://www.youtube.com/watch?v=7QU1nvuxaMA)
+- [Original Fire](https://www.youtube.com/watch?v=u1mexmK6bDY)
 
 ## Band Of Horses
 - [The funeral](https://www.youtube.com/watch?v=E1ZPPc9DJbs)
@@ -99,6 +100,13 @@
 - [Please Forgive Me](https://www.youtube.com/watch?v=9EHAo6rEuas)
 - [So Happy It Hurts](https://www.youtube.com/watch?v=d0caIWs0O9c)
 - [Summer Of ’69](https://www.youtube.com/watch?v=9f06QZCVUHg)
+
+## Buffalo Springfield
+- [For What It's Worth](https://www.youtube.com/watch?v=1eD-8NTwP9I)
+
+## Canned Heat
+- [Going Up The Country (audio)](https://www.youtube.com/watch?v=4eQMA_noRYQ)
+- [On The Road Again (audio)](https://www.youtube.com/watch?v=5A5Xl9hPowA)
 
 ## Chuck Berry
 - [Johnny B. Goode](https://www.youtube.com/watch?v=Uf4rxCB4lys)
@@ -296,6 +304,9 @@
 ## Motörhead 
 - [Heroes (David Bowie Cover)](https://www.youtube.com/watch?v=J06yQb4lbPk)
 
+## Mungo Jerry
+- [In The Summertime](https://www.youtube.com/watch?v=wvUQcnfwUUM)
+
 ## Nickelback
 - [Burn It To The Ground](https://www.youtube.com/watch?v=q0HElo91a4s)
 - [How You Remind Me](https://www.youtube.com/watch?v=1cQh1ccqu8M)
@@ -369,7 +380,17 @@
 - [We Will Rock You](https://www.youtube.com/watch?v=-tJYN-eG1zk)
 
 ## R.E.M.
+- [Bad Day](https://www.youtube.com/watch?v=Hyk-Vdd_Qrk)
+- [Drive](https://www.youtube.com/watch?v=-UE7tXDKIus)
 - [Everybody Hurts](https://www.youtube.com/watch?v=5rOiW_xY-kc)
+- [Imitation Of Life](https://www.youtube.com/watch?v=0vqgdSsfqPs)
+- [It's The End Of The World As We Know It (And I Feel Fine)](https://www.youtube.com/watch?v=Z0GFRcFm-aY)
+- [Loosing My Religion](https://www.youtube.com/watch?v=xwtdhWltSIg)
+- [Man on the Moon](https://www.youtube.com/watch?v=dLxpNiF0YKs)
+- [Orange Crush](https://www.youtube.com/watch?v=_mSmOcmk7uQ)
+- [Shiny Happy People](https://www.youtube.com/watch?v=YYOKMUTTDdA)
+- [Stand](https://www.youtube.com/watch?v=AKKqLl_ZEEY)
+- [The One I Love](https://www.youtube.com/watch?v=j7oQEPfe-O8)
 
 ## Ram Jam
 - [Black Betty](https://www.youtube.com/watch?v=I_2D8Eo15wE)
@@ -412,12 +433,18 @@
 - [Whatever You Want](https://www.youtube.com/watch?v=_wI3tbBk1PA)
 - [Whatever You Want" (Live at Wacken 2017)](https://www.youtube.com/watch?v=PNeGc2eZzmw)
 
+## Stealers Wheel
+- [Stuck in the Middle with you](https://www.youtube.com/watch?v=OMAIsqvTh7g)
+ 
 ## Steppenwolf
 - [Born To Be Wild](https://www.youtube.com/watch?v=93fAJe8WVjA)
 
 ## Steve Harley And Cockney Rebel
 - [Make Me Smile](https://www.youtube.com/watch?v=9pzJE3eP7S8)
 - [Make Me Smile (Come Up And See Me) (TV live)](https://www.youtube.com/watch?v=DJ4QoCskBN4)
+
+## Steve Miller Band
+- [The Joker](https://www.youtube.com/watch?v=dV3AziKTBUo)
 
 ## Sting
 - [Fields Of Gold](https://www.youtube.com/watch?v=KLVq0IAzh1A)
