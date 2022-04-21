@@ -82,6 +82,7 @@
 - [Don't Worry Be Happy](https://www.youtube.com/watch?v=d-diB65scQU)
 
 ## Bon Jovi
+- [It's My Life](https://www.youtube.com/watch?v=vx2u5uUu3DE)
 - [Livin' On A Prayer](https://www.youtube.com/watch?v=lDK9QqIzhwk)
 
 ## Bronski Beat
@@ -473,6 +474,17 @@
 
 ## The Cranberries
 
+## The Cult
+- [She Sells Sanctuary](https://www.youtube.com/watch?v=ZCOSPtyZAPA)
+
+## The Cure
+- [Boys Don't Cry](https://www.youtube.com/watch?v=9GkVhgIeGJQ)
+- [Fascination Street](https://www.youtube.com/watch?v=7ZsQdLlvuk4)
+- [Just Like Heaven](https://www.youtube.com/watch?v=n3nPiBai66M)
+- [Lovesong](https://www.youtube.com/watch?v=ks_qOI0lzho)
+- [Lullaby](https://www.youtube.com/watch?v=ijxk-fgcg7c)
+- [Pictures Of You](https://www.youtube.com/watch?v=UmFFTkjs-O0)
+
 ## The Doors
 - [Break on Through](https://www.youtube.com/watch?v=NFeUko-lQHg)
 - [Light my fire](https://www.youtube.com/watch?v=mbj1RFaoyLk)
@@ -504,6 +516,11 @@
 
 ## The Proclaimers
 - [I'm Gonna Be (500 Miles)](https://www.youtube.com/watch?v=tbNlMtqrYS0)
+
+## The Smiths
+- [Heaven Knows I'm Miserable Now](https://www.youtube.com/watch?v=TjPhzgxe3L0)
+- [This Charming Man](https://www.youtube.com/watch?v=cJRP3LRcUFg)
+- [Please, Please, Please, Let Me Get What I Want (audio)](https://www.youtube.com/watch?v=w3qPMe_cCJk)
 
 ## The Rolling Stones
 - [Angie](https://www.youtube.com/watch?v=RcZn2-bGXqQ)
@@ -569,7 +586,14 @@
 - [We're Not Gonna Take it](https://www.youtube.com/watch?v=V9AbeALNVkk)
 
 ## U2
+- [Beautiful Day](https://www.youtube.com/watch?v=co6WMzDOh1o)
 - [I Still Haven't Found What I'm Looking For](https://www.youtube.com/watch?v=e3-5YC_oHjE)
+- [One](https://www.youtube.com/watch?v=ftjEcrrf7r0)
+- [Pride (In The Name Of Love)](https://www.youtube.com/watch?v=LHcP4MWABGY)
+- [Sunday Bloody Sunday (audio)](https://www.youtube.com/watch?v=ryde_5JlkSQ)
+- [Sunday Bloody Sunday (Live, USA, 1983)](https://www.youtube.com/watch?v=EM4vblG6BVQ)
+- [Where The Streets Have No Name](https://www.youtube.com/watch?v=GzZWSrr5wFI)
+- [With Or Without You](https://www.youtube.com/watch?v=ujNeHIo7oTE)
 
 ## Van Halen
 - [Jump](https://www.youtube.com/watch?v=SwYN7mTi6HM)
