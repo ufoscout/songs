@@ -280,7 +280,13 @@
 - [Hey Lou](https://www.youtube.com/watch?v=K4LcFHMjH9k)
 
 ## Lynyrd Skynyrd
-
+- [Call me the Breeze](https://www.youtube.com/watch?v=OSx-ADqyD9M&list=OLAK5uy_kCn2HfAbiilksQUB44tRt5VGkv-SUWNe4&index=7)
+- [Free bird (audio)](https://www.youtube.com/watch?v=CqnU_sJ8V-E)
+- [Free bird (Live 1977)](https://www.youtube.com/watch?v=QxIWDmmqZzY)
+- [Simple Man (audio)](https://www.youtube.com/watch?v=l-5aPNxv-pU)
+- [Sweet Home Alabama (Live 1977)](https://www.youtube.com/watch?v=6GxWmSVv-cY)
+- [That Smell](https://www.youtube.com/watch?v=erg2vyJ2UOk)
+- [Tuesday's Gone](https://www.youtube.com/watch?v=iExsbDuVqeE)
 
 ## M83
 - [Wait](https://www.youtube.com/watch?v=lAwYodrBr2Q)
