@@ -617,11 +617,13 @@
 - [I Wanna Dance With Somebody](https://www.youtube.com/watch?v=eH3giaIzONA)
 
 ## Xavier Rudd
+- [Bow Down](https://www.youtube.com/watch?v=p2UeqUQ3Kew)
 - [Follow The Sun](https://www.youtube.com/watch?v=0E1bNmyPWww)
 - [Let me be](https://www.youtube.com/watch?v=PHFzLR7wJUI)
 - [Spirit Bird](https://www.youtube.com/watch?v=T6NFckh8K9k)
 - [Stoney Creek](https://www.youtube.com/watch?v=mcDWBckYN18)
 - [Walk Away](https://www.youtube.com/watch?v=7GQvdgT6Eh0)
+- [We Deserve To Dream](https://www.youtube.com/watch?v=v2dkp2jMWRU)
 
 ## ZZ Top
 - [La Grange](https://www.youtube.com/watch?v=FJaaWz-AJd0)
