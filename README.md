@@ -321,6 +321,9 @@
 ## Nirvana
 - [Smells like teen spirit](https://www.youtube.com/watch?v=ft_DaIxrbLk)
 
+## Norman Greenbaum
+- [Spirit In The Sky](https://www.youtube.com/watch?v=vRFo72wuU6w)
+
 ## Of Monsters And Men
 - [Black Water](https://www.youtube.com/watch?v=AILsB9G8qEw)
 - [Dirty Paws](https://www.youtube.com/watch?v=mCHUw7ACS8o)
