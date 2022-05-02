@@ -121,6 +121,18 @@
 - [Time After Time](https://www.youtube.com/watch?v=VdQY7BusJNU)
 
 ## Creedence Clearwater Revival
+- [Born On The Bayou (audio)](https://www.youtube.com/watch?v=fcTQCNntGEs)
+- [Bad Moon Rising (audio)](https://www.youtube.com/watch?v=zUQiUFZ5RDw)
+- [Down on the corner (audio)](https://www.youtube.com/watch?v=vrMvblpZFq0)
+- [Down on the corner](https://www.youtube.com/watch?v=2GY9GyHxyEo)
+- [Fortunate Son](https://www.youtube.com/watch?v=ZWijx_AgPiA)
+- [Green River](https://www.youtube.com/watch?v=L5V9nK7-OkM)
+- [Have You Ever Seen The Rain](https://www.youtube.com/watch?v=u1V8YRJnr4Q)
+- [I Heard It Through The Grapevine](https://www.youtube.com/watch?v=wCCfc2vAuDU)
+- [Lookin' Out My Back Door](https://www.youtube.com/watch?v=Aae_RHRptRg)
+- [Proud Mary (audio)](https://www.youtube.com/watch?v=5hid10EgMXE)
+- [Proud Mary](https://www.youtube.com/watch?v=wP56EcXm9R0)
+- [Run Through The Jungle (audio)](https://www.youtube.com/watch?v=_7PUPNxsRQ0)
 
 ## Culture club
 - [Do You Really Want To Hurt Me](https://www.youtube.com/watch?v=2nXGPZaTKik)
