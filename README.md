@@ -167,6 +167,12 @@
 ## Evanescence
 - [Bring Me To Life](https://www.youtube.com/watch?v=3YxaaGgTQYM)
 
+## Everly Brothers
+- [All I Have To Do Is Dream (audio)](https://www.youtube.com/watch?v=tbU3zdAgiX8)
+- [Bye Bye Love (audio)](https://www.youtube.com/watch?v=LRyrWN-fftE)
+- [Love Hurts (audio)](https://www.youtube.com/watch?v=hFE2SnliiV0)
+- [Wake Up Little Susie (audio)](https://www.youtube.com/watch?v=9qBroU-jEV8)
+
 ## Extreme
 - [More Than Words](https://www.youtube.com/watch?v=UrIiLvg58SY)
 
@@ -179,6 +185,9 @@
 
 ## Five Finger Death Punch
 - [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
+
+## Gabriela Gunčíková
+- [Love Hurts (cover)](https://www.youtube.com/watch?v=xhv4f6FjWNM)
 
 ## Gary Moore
 - [Parisienne Walkways (Live)](https://www.youtube.com/watch?v=vkUpfw4Hf3w)
@@ -314,6 +323,9 @@
 ## Mungo Jerry
 - [In The Summertime](https://www.youtube.com/watch?v=wvUQcnfwUUM)
 
+## Nazareth 
+- [Love Hurts](https://www.youtube.com/watch?v=vOn0z0IRVN8)
+
 ## Nickelback
 - [Burn It To The Ground](https://www.youtube.com/watch?v=q0HElo91a4s)
 - [How You Remind Me](https://www.youtube.com/watch?v=1cQh1ccqu8M)
@@ -405,6 +417,9 @@
 ## Ram Jam
 - [Black Betty](https://www.youtube.com/watch?v=I_2D8Eo15wE)
 
+## Righteous Brothers
+- [Unchained Melody](https://www.youtube.com/watch?v=qiiyq2xrSI0)
+
 ## Robert Plant & Alison Krauss
 - [Please Read the Letter](https://www.youtube.com/watch?v=SoDuhwnG30Y&list=PL8g0bTbJueB0vtsY-hTSPYPtKrE22K68Z&index=8)
 
@@ -417,6 +432,9 @@
 ## Scorpions
 - [Wind Of Change](https://www.youtube.com/watch?v=n4RjJKxsamQ)
 
+## Shocking Blue
+- [Venus](https://www.youtube.com/watch?v=aPEhQugz-Ew)
+ 
 ## Simon and Garfunkel
 - [The Boxer (from The Concert in Central Park)](https://www.youtube.com/watch?v=6JUbFj0BIc4)
 - [The Sound of Silence (from The Concert in Central Park)](https://www.youtube.com/watch?v=NAEppFUWLfc)
@@ -502,6 +520,9 @@
 - [Roadhouse Blues (live)](https://www.youtube.com/watch?v=kE32pvvaDT8)
 - [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
 
+## The Great Society
+— [Someone to Love](https://www.youtube.com/watch?v=Rw7BSVBrpTg)
+
 ## The Kinks
 - [All Day And All Of The Night](https://www.youtube.com/watch?v=fOGMRnKl5co)
 - [Lola](https://www.youtube.com/watch?v=6CzrYXcXweI)
@@ -513,12 +534,23 @@
 
 ## The Lumineers
 
+## The Monkees
+- [Daydream Believer](https://www.youtube.com/watch?v=xvqeSJlgaNk)
+- [I'm a Believer](https://www.youtube.com/watch?v=wB9YIsKIEbA)
+
 ## The Offspring
 - [Come out and play](https://www.youtube.com/watch?v=1jOk8dk-qaU)
 - [Pretty Fly (For A White Guy)](https://www.youtube.com/watch?v=QtTR-_Klcq8)
 - [Self Esteem](https://www.youtube.com/watch?v=Abrn8aVQ76Q)
 - [The Kids Aren't Alright](https://www.youtube.com/watch?v=7iNbnineUCI)
 - [Why Don't You Get A Job?](https://www.youtube.com/watch?v=LH-i8IvYIcg)
+
+## The Platters
+- [The Great Pretender (audio)](https://www.youtube.com/watch?v=rwfmbXJEBtY)
+- [The Great Pretender](https://www.youtube.com/watch?v=IEzfhclKO8Q)
+- [Only you (audio)](https://www.youtube.com/watch?v=5p2k55F-uag)
+- [Only you](https://www.youtube.com/watch?v=3FygIKsnkCw)
+- [Smoke Get In Your Eyes (audio)](https://www.youtube.com/watch?v=vfBboBz3yoc)
 
 ## The Police
 - [Every Breath You Take](https://www.youtube.com/watch?v=OMOGaugKpzs)
@@ -549,6 +581,13 @@
 ## The Traveling Wilburys
 - [End Of The Line](https://www.youtube.com/watch?v=UMVjToYOjbM)
 - [Handle With Care](https://www.youtube.com/watch?v=1o4s1KVJaVA)
+
+## The Troggs
+- [I Can't Control Myself](https://www.youtube.com/watch?v=rzHpGjvRgTc)
+- [Love Is All Around](https://www.youtube.com/watch?v=WO6glz0wpmo)
+- [Wild Thing (Audio)](https://www.youtube.com/watch?v=4qHX493bB3U)
+- [Wild Thing](https://www.youtube.com/watch?v=gSWInYFVksg)
+- [With A Girl Like You](https://www.youtube.com/watch?v=3bCGacIl2f0)
 
 ## The Verve
 - [Bitter Symphony](https://www.youtube.com/watch?v=1lyu1KKwC74)
