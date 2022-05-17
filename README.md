@@ -102,6 +102,11 @@
 - [So Happy It Hurts](https://www.youtube.com/watch?v=d0caIWs0O9c)
 - [Summer Of ’69](https://www.youtube.com/watch?v=9f06QZCVUHg)
 
+## Buddy Holly 
+- [Maybe Baby](https://www.youtube.com/watch?v=IITcZ92w37I)
+- [Peggy Sue](https://www.youtube.com/watch?v=1Gj-ALiWJ1E)
+- [That'll be the day](https://www.youtube.com/watch?v=OGW38N3J4IA)
+
 ## Buffalo Springfield
 - [For What It's Worth](https://www.youtube.com/watch?v=1eD-8NTwP9I)
 
@@ -258,6 +263,9 @@
 
 ## Jeff Buckley
 - [Hallelujah](https://www.youtube.com/watch?v=y8AWFf7EAc4)
+
+## Jerry Lee Lewis
+- [Great balls of fire](https://www.youtube.com/watch?v=V_FAqr6rP4w)
 
 ## Jet
 - [Are You Gonna Be My Girl](https://www.youtube.com/watch?v=tuK6n2Lkza0)
@@ -426,8 +434,14 @@
 - [Stand](https://www.youtube.com/watch?v=AKKqLl_ZEEY)
 - [The One I Love](https://www.youtube.com/watch?v=j7oQEPfe-O8)
 
+## Ray Charles
+- [Hit the road Jack](https://www.youtube.com/watch?v=uSiHqxgE2d0)
+
 ## Ram Jam
 - [Black Betty](https://www.youtube.com/watch?v=I_2D8Eo15wE)
+
+## Rednex
+- [Cotton Eye Joe](https://www.youtube.com/watch?v=mOYZaiDZ7BM)
 
 ## Righteous Brothers
 - [Unchained Melody](https://www.youtube.com/watch?v=qiiyq2xrSI0)
@@ -510,6 +524,10 @@
 
 ## The Beatles
 - [Don't let me down](https://www.youtube.com/watch?v=NCtzkaL2t_Y)
+
+## The Clash
+- [Should I Stay or Should I Go (live)](https://www.youtube.com/watch?v=8-cjjzNbg70)
+- [Should I Stay or Should I Go (audio)](https://www.youtube.com/watch?v=wjZMcWaniA4)
 
 ## The Cranberries
 
@@ -620,6 +638,9 @@
 - [Who are you (live)](https://www.youtube.com/watch?v=PNbBDrceCy8)
 - [Won't Get Fooled Again (audio)](https://www.youtube.com/watch?v=_NzLs-xSss0)
 - [Won't Get Fooled Again (live)](https://www.youtube.com/watch?v=UDfAdHBtK_Q)
+
+## Tom Jones
+- [It's not unusual](https://www.youtube.com/watch?v=k-HdGnzYdFQ)
 
 ## Tom Petty And The Heartbreakers
 - [Free Fallin'](https://www.youtube.com/watch?v=1lWJXDG2i0A)
