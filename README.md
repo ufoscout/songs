@@ -51,8 +51,13 @@
 - [Like a stone](https://www.youtube.com/watch?v=7QU1nvuxaMA)
 - [Original Fire](https://www.youtube.com/watch?v=u1mexmK6bDY)
 
+## Bad Company
+
 ## Band Of Horses
 - [The funeral](https://www.youtube.com/watch?v=E1ZPPc9DJbs)
+
+## Ben E. King
+- [Stand by me](https://www.youtube.com/watch?v=hwZNL7QVJjE)
 
 ## Billy Idol
 - [Dancing with myself](https://www.youtube.com/watch?v=FG1NrQYXjLU)
@@ -273,9 +278,18 @@
 ## Jet
 - [Are You Gonna Be My Girl](https://www.youtube.com/watch?v=tuK6n2Lkza0)
 
+## Jimi Hendrix Experience
+
+
 ## Joan Jett and the Blackhearts
 - [I love Rock'n roll](https://www.youtube.com/watch?v=d9jhDwxt22Y)
 - [I Hate Myself for Loving You](https://www.youtube.com/watch?v=bpNw7jYkbVc)
+
+## John Lennon
+- [Imagine](https://www.youtube.com/watch?v=YkgkThdzX-8)
+- [Instant Karma (We all shine on)](https://www.youtube.com/watch?v=xLy2SaSQAtA)
+- [Jealous guy](https://www.youtube.com/watch?v=wADRRYNHhOA)
+- [(Just like) Starting over](https://www.youtube.com/watch?v=pZCxyOcvp5A)
 
 ## John Mellencamp
 - [Hurts So Good](https://www.youtube.com/watch?v=4dOsbsuhYGQ)
@@ -364,6 +378,11 @@
 - [Dirty Paws](https://www.youtube.com/watch?v=mCHUw7ACS8o)
 - [Little Talks](https://www.youtube.com/watch?v=ghb6eDopW8I)
 
+## Otis Redding
+- [My Girl](https://www.youtube.com/watch?v=0iPtG_O8w8g)
+- [(Sittin' On) The Dock Of The Bay](https://www.youtube.com/watch?v=rTVjnBo96Ug)
+- [These Arms Of Mine](https://www.youtube.com/watch?v=VA3SbP6IlA8)
+
 ## Ozzy Osbourne
 - [Crazy Train](https://www.youtube.com/watch?v=tMDFv5m18Pw)
 - [Dreamer](https://www.youtube.com/watch?v=LCCiwPEdEpg)
@@ -389,8 +408,11 @@
 - [Happy](https://www.youtube.com/watch?v=ZbZSe6N_BXs)
 
 ## Playing For Change
+- [All Along The Watchtower (Bob Dylan cover)](https://www.youtube.com/watch?v=-UHHc7POovg)
 - [Sittin' On The Dock Of The Bay (Otis Redding Cover)](https://www.youtube.com/watch?v=Es3Vsfzdr14)
-- [Stand By Me](https://www.youtube.com/watch?v=Us-TVg40ExM)
+- [Stand By Me (Ben E. King cover)](https://www.youtube.com/watch?v=Us-TVg40ExM)
+- [The Weight (The Band cover)](https://www.youtube.com/watch?v=ph1GU1qQ1zQ)
+- [Come As You Are (Nirvana Cover)](https://www.youtube.com/watch?v=MnNHJWbMNDg)
 
 ## **QUEEN**
 - [A Kind of Magic](https://www.youtube.com/watch?v=0p_1QSUsbsM)
@@ -524,6 +546,9 @@
 ## T.Rex 
 - [20th Century Boy](https://www.youtube.com/watch?v=8v2P_tOHsps)
 - [Get It On](https://www.youtube.com/watch?v=cp1m4B3HRhg)
+
+## The Band
+- [The Weight (audio)](https://www.youtube.com/watch?v=QWu-f7HFFJE)
 
 ## The Beatles
 - [Don't let me down](https://www.youtube.com/watch?v=NCtzkaL2t_Y)
