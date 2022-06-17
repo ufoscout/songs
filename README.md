@@ -83,6 +83,10 @@
 - [No Woman, No Cry](https://www.youtube.com/watch?v=IT8XvzIfi4U)
 - [Three Little Birds](https://www.youtube.com/watch?v=HNBCVM4KbUM)
 
+## Bob Seger
+- [Old Time Rock & Roll (audio)](https://www.youtube.com/watch?v=N9G-lvqaBfM)
+- [Night Moves](https://www.youtube.com/watch?v=xH7cSSKnkL4)
+
 ## Bobby McFerrin
 - [Don't Worry Be Happy](https://www.youtube.com/watch?v=d-diB65scQU)
 
