@@ -209,8 +209,12 @@
 - [Oh Well](https://www.youtube.com/watch?v=J0ag8DkipmQ)
 
 ## First Aid Kit
+- [Emmylou](https://www.youtube.com/watch?v=PC57z-oDPLs)
+- [Fireworks](https://www.youtube.com/watch?v=wp3op-DYFG4)
 - [My Silver Lining](https://www.youtube.com/watch?v=DKL4X0PZz7M)
 - [Shame](https://www.youtube.com/watch?v=bDdXe51yphI)
+- [Stay Gold](https://www.youtube.com/watch?v=veHUZMoKObc)
+- [The Lion's Roar](https://www.youtube.com/watch?v=gekHV9DIjHc)
 
 ## Five Finger Death Punch
 - [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
@@ -406,7 +410,12 @@
 
 ## Pearl Jam
 - [Alive](https://www.youtube.com/watch?v=qM0zINtulhM)
+- [Better Man](https://www.youtube.com/watch?v=nDK-wsdEhNE)
+- [Black (audio)](https://www.youtube.com/watch?v=qgaRVvAKoqQ)
+- [Do the Evolution](https://www.youtube.com/watch?v=aDaOgu2CQtI)
+- [Even flow](https://www.youtube.com/watch?v=CxKWTzr-k6s)
 - [Just Breathe](https://www.youtube.com/watch?v=XTb9GNIxpMk)
+- [Yellow ledbetter](https://www.youtube.com/watch?v=iYtBMgLfqKQ)
 
 ## Pharrell Williams
 - [Happy](https://www.youtube.com/watch?v=ZbZSe6N_BXs)
@@ -551,6 +560,9 @@
 - [20th Century Boy](https://www.youtube.com/watch?v=8v2P_tOHsps)
 - [Get It On](https://www.youtube.com/watch?v=cp1m4B3HRhg)
 
+## Temple Of The Dog
+- [Hunger Strike](https://www.youtube.com/watch?v=VUb450Alpps)
+
 ## The Band
 - [The Weight (audio)](https://www.youtube.com/watch?v=QWu-f7HFFJE)
 
@@ -562,6 +574,17 @@
 - [Should I Stay or Should I Go (audio)](https://www.youtube.com/watch?v=wjZMcWaniA4)
 
 ## The Cranberries
+- [Analyse](https://www.youtube.com/watch?v=DaBWlBknNgs)
+- [Animal Instinct](https://www.youtube.com/watch?v=ky4CdN0x58A)
+- [Dreams](https://www.youtube.com/watch?v=Yam5uK6e-bQ)
+- [I can't be with you](https://www.youtube.com/watch?v=JIlg0yM0XKg)
+- [Just My Imagination](https://www.youtube.com/watch?v=SHoHIL2ABVQ)
+- [Linger](https://www.youtube.com/watch?v=G6Kspj3OO0s)
+- [Ode To My Family](https://www.youtube.com/watch?v=Zz-DJr1Qs54)
+- [Promises](https://www.youtube.com/watch?v=hUFPooqKllA)
+- [Salvation](https://www.youtube.com/watch?v=KotlCEGNbh8)
+- [When You're Gone](https://www.youtube.com/watch?v=RUmdWdEgHgk)
+- [Zombie](https://www.youtube.com/watch?v=6Ejga4kJUts)
 
 ## The Cult
 - [She Sells Sanctuary](https://www.youtube.com/watch?v=ZCOSPtyZAPA)
