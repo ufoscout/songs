@@ -247,7 +247,9 @@
 - [Somebody That I Used To Know](https://www.youtube.com/watch?v=8UVNT4wvIGY)
 
 ## Green Day
+- [American Idiot](https://www.youtube.com/watch?v=Ee_uujKuJMI)
 - [Basket Case](https://www.youtube.com/watch?v=NUTGr5t3MoY)
+- [Boulevard Of Broken Dreams](https://www.youtube.com/watch?v=Soa3gO7tL-c)
 
 ## Greta Van Fleet
 - [Highway Tune](https://www.youtube.com/watch?v=aJg4OJxp-co)
@@ -319,6 +321,9 @@
 ## Led Zeppelin
 - [Thank you](https://www.youtube.com/watch?v=12KbOAc8vmk)
 
+## Lewis Capaldi
+- [Someone You Loved](https://www.youtube.com/watch?v=zABLecsR5UE)
+
 ## Liquido
 - [Narcotic](https://www.youtube.com/watch?v=PJ7E40Ec5ec)
 
@@ -350,6 +355,9 @@
 
 ## Max Gazzè
 - [Sotto casa](https://www.youtube.com/watch?v=Ej0ME8xdiF8)
+
+## Maroon 5
+- [Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
 
 ## Meat Loaf
 - [Bat Out of Hell](https://www.youtube.com/watch?v=3QGMCSCFoKA)
@@ -693,6 +701,9 @@
 - [Who are you (live)](https://www.youtube.com/watch?v=PNbBDrceCy8)
 - [Won't Get Fooled Again (audio)](https://www.youtube.com/watch?v=_NzLs-xSss0)
 - [Won't Get Fooled Again (live)](https://www.youtube.com/watch?v=UDfAdHBtK_Q)
+
+## Tina Turner
+- [The Best](https://www.youtube.com/watch?v=GC5E8ie2pdM)
 
 ## Tom Jones
 - [It's not unusual](https://www.youtube.com/watch?v=k-HdGnzYdFQ)
