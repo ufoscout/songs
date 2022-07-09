@@ -715,6 +715,7 @@
 - [Give Me One Reason](https://www.youtube.com/watch?v=V6hQ9HSKlIE)
 
 ## Train
+- [Drops of Jupiter](https://www.youtube.com/watch?v=7Xf-Lesrkuc)
 - [Hey, Soul Sister](https://www.youtube.com/watch?v=kVpv8-5XWOI)
 
 ## Twisted Sister
