@@ -169,6 +169,9 @@
 - [Sultans Of Swing](https://www.youtube.com/watch?v=h0ffIJ7ZO4U)
 - [Walk Of Life](https://www.youtube.com/watch?v=kd9TlGDZGkI)
 
+## Don McLean
+- [American Pie](https://www.youtube.com/watch?v=PRpiBpDy7MQ)
+
 ## Eagle-Eye Cherry
 - [Save Tonight](https://www.youtube.com/watch?v=Nntd2fgMUYw)
 
