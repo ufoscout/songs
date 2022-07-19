@@ -175,6 +175,10 @@
 ## Eagle-Eye Cherry
 - [Save Tonight](https://www.youtube.com/watch?v=Nntd2fgMUYw)
 
+## Eddie Vedder 
+- [Society](https://www.youtube.com/watch?v=ABsslEoL0-c)
+- [The Long Road (with Nusrat fateh ali Khan)](https://www.youtube.com/watch?v=-b33vOZKcS0)
+
 ## Elvis Presley
 
 ## Enya
