@@ -518,6 +518,9 @@
 - [The Boxer (from The Concert in Central Park)](https://www.youtube.com/watch?v=6JUbFj0BIc4)
 - [The Sound of Silence (from The Concert in Central Park)](https://www.youtube.com/watch?v=NAEppFUWLfc)
 
+## Simple Minds
+- Don't You (Forget About Me) [https://www.youtube.com/watch?v=CdqoNKCCt7A]
+
 ## Slade
 - [Far Far Away (audio)](https://www.youtube.com/watch?v=G76pMAgNZNI)
 - [Far Far Away (live)](https://www.youtube.com/watch?v=6gqCCAb8xbw)
