@@ -383,6 +383,12 @@
 ## Mungo Jerry
 - [In The Summertime](https://www.youtube.com/watch?v=wvUQcnfwUUM)
 
+## Muse
+- [Madness](https://www.youtube.com/watch?v=Ek0SgwWmF9w)
+- [Starlight](https://www.youtube.com/watch?v=Pgum6OT_VH8)
+- [Time Is Running Out](https://www.youtube.com/watch?v=O2IuJPh6h_A)
+- [Uprising](https://www.youtube.com/watch?v=w8KQmps-Sog)
+
 ## Nazareth 
 - [Love Hurts](https://www.youtube.com/watch?v=vOn0z0IRVN8)
 
