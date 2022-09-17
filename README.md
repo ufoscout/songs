@@ -587,6 +587,9 @@
 ## Temple Of The Dog
 - [Hunger Strike](https://www.youtube.com/watch?v=VUb450Alpps)
 
+## Tesla
+- [What You Give](https://www.youtube.com/watch?v=9vwHuCC6nP8)
+
 ## The Band
 - [The Weight (audio)](https://www.youtube.com/watch?v=QWu-f7HFFJE)
 
