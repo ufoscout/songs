@@ -124,6 +124,10 @@
 - [Going Up The Country (audio)](https://www.youtube.com/watch?v=4eQMA_noRYQ)
 - [On The Road Again (audio)](https://www.youtube.com/watch?v=5A5Xl9hPowA)
 
+## Carly Simon
+- [You're so vain (audio)](https://www.youtube.com/watch?v=cleCtBP0o5Y)
+- [You're so vain (live)](https://www.youtube.com/watch?v=mQZmCJUSC6g)
+
 ## Chuck Berry
 - [Johnny B. Goode](https://www.youtube.com/watch?v=Uf4rxCB4lys)
 - [My Ding-a-Ling (live)](https://www.youtube.com/watch?v=hMddte6yD2w)
@@ -218,7 +222,9 @@
 - [Haut le coeurs](https://www.youtube.com/watch?v=etmSWkeRYbk)
 
 ## Fleetwood Mac
+- [Black Magic Woman (Live Boston Tea Party 1970)](https://www.youtube.com/watch?v=hRu7Pt42x6Y)
 - [Oh Well](https://www.youtube.com/watch?v=J0ag8DkipmQ)
+- [Need your love so bad](https://www.youtube.com/watch?v=RtmW2ek7WkQ)
 
 ## First Aid Kit
 - [Emmylou](https://www.youtube.com/watch?v=PC57z-oDPLs)
