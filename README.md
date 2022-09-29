@@ -86,6 +86,7 @@
 ## Bob Seger
 - [Old Time Rock & Roll (audio)](https://www.youtube.com/watch?v=N9G-lvqaBfM)
 - [Night Moves](https://www.youtube.com/watch?v=xH7cSSKnkL4)
+- [Turn the Page](https://www.youtube.com/watch?v=GONmFCkCGCc)
 
 ## Bobby McFerrin
 - [Don't Worry Be Happy](https://www.youtube.com/watch?v=d-diB65scQU)
@@ -171,6 +172,10 @@
 
 ## Don McLean
 - [American Pie](https://www.youtube.com/watch?v=PRpiBpDy7MQ)
+
+## Eagles
+- [Hotel California (audio)](https://www.youtube.com/watch?v=BciS5krYL80)
+- [Take it easy (audio)](https://www.youtube.com/watch?v=VzEmHYEggxM)
 
 ## Eagle-Eye Cherry
 - [Save Tonight](https://www.youtube.com/watch?v=Nntd2fgMUYw)
