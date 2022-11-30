@@ -62,6 +62,7 @@
 ## Billy Idol
 - [Dancing with myself](https://www.youtube.com/watch?v=FG1NrQYXjLU)
 - [Rebel Yell](https://www.youtube.com/watch?v=VdphvuyaV_I)
+- [White Wedding Pt 1](https://www.youtube.com/watch?v=AAZQaYKZMTI)
 
 ## Billy Joel
 - [Uptown Girl](https://www.youtube.com/watch?v=hCuMWrfXG4E)
