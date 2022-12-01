@@ -61,6 +61,7 @@
 
 ## Billy Idol
 - [Dancing with myself](https://www.youtube.com/watch?v=FG1NrQYXjLU)
+- [Eyes Without A Face](https://www.youtube.com/watch?v=9OFpfTd0EIs)
 - [Rebel Yell](https://www.youtube.com/watch?v=VdphvuyaV_I)
 - [White Wedding Pt 1](https://www.youtube.com/watch?v=AAZQaYKZMTI)
 
