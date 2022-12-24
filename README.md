@@ -405,6 +405,12 @@
 ## Nazareth 
 - [Love Hurts](https://www.youtube.com/watch?v=vOn0z0IRVN8)
 
+## Neil Young
+- [Harvest Moon](https://www.youtube.com/watch?v=n2MtEsrcTTs)
+- [Heart of Gold](https://www.youtube.com/watch?v=WZn9QZykx10)
+- [Old man](https://www.youtube.com/watch?v=OuVIJlSDOs0)
+- [Rockin' in the Free World](https://www.youtube.com/watch?v=DvxxdZpMFHg)
+
 ## Nickelback
 - [Burn It To The Ground](https://www.youtube.com/watch?v=q0HElo91a4s)
 - [How You Remind Me](https://www.youtube.com/watch?v=1cQh1ccqu8M)
