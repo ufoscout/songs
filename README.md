@@ -499,6 +499,9 @@
 - [We Are The Champions (Live)](https://www.youtube.com/watch?v=KXw8CRapg7k)
 - [We Will Rock You](https://www.youtube.com/watch?v=-tJYN-eG1zk)
 
+## Queensrÿche
+- [Silent Lucidity](https://www.youtube.com/watch?v=jhat-xUQ6dw)
+
 ## R.E.M.
 - [Bad Day](https://www.youtube.com/watch?v=Hyk-Vdd_Qrk)
 - [Drive](https://www.youtube.com/watch?v=-UE7tXDKIus)
