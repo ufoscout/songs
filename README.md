@@ -51,6 +51,9 @@
 - [Like a stone](https://www.youtube.com/watch?v=7QU1nvuxaMA)
 - [Original Fire](https://www.youtube.com/watch?v=u1mexmK6bDY)
 
+## B.J. Thomas
+- [Raindrops Keep Falling on my Head](https://www.youtube.com/watch?v=sySlY1XKlhM)
+
 ## Bad Company
 
 ## Band Of Horses
