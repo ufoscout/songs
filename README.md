@@ -543,7 +543,7 @@
 - [Wind Of Change](https://www.youtube.com/watch?v=n4RjJKxsamQ)
 
 ## Shocking Blue
-- [Venus](https://www.youtube.com/watch?v=aPEhQugz-Ew)
+- [Venus](https://www.youtube.com/watch?v=8LhkyyCvUHk)
  
 ## Simon and Garfunkel
 - [The Boxer (from The Concert in Central Park)](https://www.youtube.com/watch?v=6JUbFj0BIc4)
@@ -658,7 +658,10 @@
 - [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
 
 ## The Great Society
-— [Someone to Love](https://www.youtube.com/watch?v=Rw7BSVBrpTg)
+- [Someone to Love](https://www.youtube.com/watch?v=Rw7BSVBrpTg)
+
+## The Hollies
+- [Long Cool Woman (In A Black Dress)](https://www.youtube.com/watch?v=1l0xpkk0yaQ)
 
 ## The Kinks
 - [All Day And All Of The Night](https://www.youtube.com/watch?v=fOGMRnKl5co)
