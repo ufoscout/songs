@@ -133,6 +133,9 @@
 - [You're so vain (audio)](https://www.youtube.com/watch?v=cleCtBP0o5Y)
 - [You're so vain (live)](https://www.youtube.com/watch?v=mQZmCJUSC6g)
 
+## Celine Dion
+- [All by myself](https://www.youtube.com/watch?v=NGrLb6W5YOM)
+
 ## Chuck Berry
 - [Johnny B. Goode](https://www.youtube.com/watch?v=Uf4rxCB4lys)
 - [My Ding-a-Ling (live)](https://www.youtube.com/watch?v=hMddte6yD2w)
@@ -304,6 +307,9 @@
 
 ## Jeff Buckley
 - [Hallelujah](https://www.youtube.com/watch?v=y8AWFf7EAc4)
+
+## Jennifer Rush
+- [The Power Of Love](https://www.youtube.com/watch?v=b_zHQ6kFuQ0)
 
 ## Jerry Lee Lewis
 - [Great balls of fire](https://www.youtube.com/watch?v=V_FAqr6rP4w)
