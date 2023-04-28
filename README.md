@@ -55,6 +55,10 @@
 - [Raindrops Keep Falling on my Head](https://www.youtube.com/watch?v=sySlY1XKlhM)
 
 ## Bad Company
+- [Bad Company](https://www.youtube.com/watch?v=JXQJpyQBShU)
+- [Can't Get Enough](https://www.youtube.com/watch?v=4XwKk_LmwTI)
+- [Feel Like Makin' Love](https://www.youtube.com/watch?v=OEPvv9pjIoQ)
+- [Shooting Star](https://www.youtube.com/watch?v=FJTSmLqg6iE)
 
 ## Band Of Horses
 - [The funeral](https://www.youtube.com/watch?v=E1ZPPc9DJbs)
@@ -82,6 +86,12 @@
 - [One way or another (audio)](https://www.youtube.com/watch?v=_zBwRDEFMRY)
 - [One way or another (Top of the Pop)](https://www.youtube.com/watch?v=FIXIsYWS8CA)
 - [Maria (Official Video)](https://www.youtube.com/watch?v=abw49k3rIN0)
+
+## Bob Gedolf and The Boomtown Rats
+- [I Don't Like Mondays](https://www.youtube.com/watch?v=-Kobdb37Cwc)
+- [Room 19 (Sha La La La Lee)](https://www.youtube.com/watch?v=GcQeZsYrPp4)
+- [The Great Song Of Indifference](https://www.youtube.com/watch?v=NoweGN8cm5g)
+- [This Is The World Calling](https://www.youtube.com/watch?v=QvvEMFxVCpE)
 
 ## Bob Marley & The Wailers
 - [Is This Love](https://www.youtube.com/watch?v=69RdQFDuYPI)
@@ -297,6 +307,9 @@
 - [All I Wanna Do Is Make Love To You](https://www.youtube.com/watch?v=OAfxs0IDeMs)
 - [Alone](https://www.youtube.com/watch?v=1Cw1ng75KP0)
 - [Barracuda](https://www.youtube.com/watch?v=PeMvMNpvB5M)
+
+## Ian Hunter
+- [Bed of Roses](https://www.youtube.com/watch?v=B1B-oHjTiI0)
 
 ## Israel Kamakawiwo'ole
 - [Somewhere over the rainbow](https://www.youtube.com/watch?v=V1bFr2SWP1I)
