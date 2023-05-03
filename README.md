@@ -316,6 +316,12 @@
 ## Ian Hunter
 - [Bed of Roses](https://www.youtube.com/watch?v=B1B-oHjTiI0)
 
+## Iggy Pop
+- [Candy](https://www.youtube.com/watch?v=6bLOjmY--TA)
+- [Lust For Life](https://www.youtube.com/watch?v=jQvUBf5l7Vw)
+- [Real Wild Child (Wild One)](https://www.youtube.com/watch?v=def3ob2h-1s)
+- [The Passenger](https://www.youtube.com/watch?v=-fWw7FE9tTo)
+
 ## Israel Kamakawiwo'ole
 - [Somewhere over the rainbow](https://www.youtube.com/watch?v=V1bFr2SWP1I)
 
@@ -558,6 +564,7 @@
 - [Please Read the Letter](https://www.youtube.com/watch?v=SoDuhwnG30Y&list=PL8g0bTbJueB0vtsY-hTSPYPtKrE22K68Z&index=8)
 
 ## Roy Orbison
+- [I Drove All Night](https://www.youtube.com/watch?v=m5N9IHqqGcA)
 - [Oh, Pretty Woman](https://www.youtube.com/watch?v=_PLq0_7k1jk)
 
 ## Rush
