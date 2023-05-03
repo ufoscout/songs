@@ -184,6 +184,11 @@
 
 ## Deep Purple
 - [Child In Time - Live (1970)](https://www.youtube.com/watch?v=OorZcOzNcgE)
+- [Highway Star](https://www.youtube.com/watch?v=UAKCR7kQMTQ)
+- [Hush](https://www.youtube.com/watch?v=u1kZ9zYr7kk)
+- [Oh Well (Fleetwood Mac cover)](https://www.youtube.com/watch?v=lTfNINPcjU8)
+- [Smoke On The Water](https://www.youtube.com/watch?v=1L3XxUxEb6U)
+- [When A Blind Man Cries](https://www.youtube.com/watch?v=ZLJ8XO7pBu4)
 
 ## Dire Straits
 - [Brothers In Arms](https://www.youtube.com/watch?v=jhdFe3evXpk)
@@ -602,6 +607,9 @@
 ## Steve Harley And Cockney Rebel
 - [Make Me Smile](https://www.youtube.com/watch?v=9pzJE3eP7S8)
 - [Make Me Smile (Come Up And See Me) (TV live)](https://www.youtube.com/watch?v=DJ4QoCskBN4)
+
+## Steve Earle
+- [Copperhead Road](https://www.youtube.com/watch?v=xvaEJzoaYZk)
 
 ## Steve Miller Band
 - [The Joker](https://www.youtube.com/watch?v=dV3AziKTBUo)
