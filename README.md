@@ -652,6 +652,13 @@
 ## The Band
 - [The Weight (audio)](https://www.youtube.com/watch?v=QWu-f7HFFJE)
 
+## The Beach Boys
+- [Barbara Ann](https://www.youtube.com/watch?v=4wvx14Qv9cg)
+- [Good Vibrations (Official Music Video)](https://www.youtube.com/watch?v=apBWI6xrbLY)
+- [I Get Around (Lyric Video)](https://www.youtube.com/watch?v=xzDNsg8VbIU)
+- [Surfin' U.S.A. (Lyric Video)](https://www.youtube.com/watch?v=enlOHxQ0tb4)
+- [Wouldn't It Be Nice](https://www.youtube.com/watch?v=5lP8BZcyoEQ)
+
 ## The Beatles
 - [Don't let me down](https://www.youtube.com/watch?v=NCtzkaL2t_Y)
 
@@ -707,6 +714,9 @@
 - [My Sharona](https://www.youtube.com/watch?v=bbr60I0u2Ng)
 
 ## The Lumineers
+
+## The Mamas & The Papas
+- [California Dreamin'](https://www.youtube.com/watch?v=N-aK6JnyFmk)
 
 ## The Monkees
 - [Daydream Believer](https://www.youtube.com/watch?v=xvqeSJlgaNk)
