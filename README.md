@@ -372,7 +372,12 @@
 - [Celebration](https://www.youtube.com/watch?v=3GwjfUFyY6M)
 
 ## Led Zeppelin
+- [Black Dog](https://www.youtube.com/watch?v=6tlSx0jkuLM)
+- [Immigrant Song](https://www.youtube.com/watch?v=RlNhD0oS5pk)
+- [Kashmir](https://www.youtube.com/watch?v=tzVJPgCn-Z8)
+- [Stairway To Heaven (Official Audio)](https://www.youtube.com/watch?v=QkF3oxziUI4)
 - [Thank you](https://www.youtube.com/watch?v=12KbOAc8vmk)
+- [Whole Lotta Love](https://www.youtube.com/watch?v=HQmmM_qwG4k)
 
 ## Lewis Capaldi
 - [Someone You Loved](https://www.youtube.com/watch?v=zABLecsR5UE)
