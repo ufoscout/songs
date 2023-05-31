@@ -648,6 +648,9 @@
 - [20th Century Boy](https://www.youtube.com/watch?v=8v2P_tOHsps)
 - [Get It On](https://www.youtube.com/watch?v=cp1m4B3HRhg)
 
+## Tash Sultana
+- [Jungle (Live)](https://www.youtube.com/watch?v=joq114XAPM8) 
+
 ## Temple Of The Dog
 - [Hunger Strike](https://www.youtube.com/watch?v=VUb450Alpps)
 
