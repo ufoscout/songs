@@ -371,6 +371,12 @@
 - [Carry on Wayward Son](https://www.youtube.com/watch?v=P5ZJui3aPoQ)
 - [Dust in the Wind](https://www.youtube.com/watch?v=tH2w6Oxx0kQ)
 
+## Kings Of Leon
+- [Sex on Fire](https://www.youtube.com/watch?v=RF0HhrwIwp0)
+
+## Kiss
+- [I Was Made For Lovin' You](https://www.youtube.com/watch?v=ZhIsAZO5gl0)
+
 ## Kool & The Gang
 - [Celebration](https://www.youtube.com/watch?v=3GwjfUFyY6M)
 
