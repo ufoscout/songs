@@ -428,6 +428,9 @@
 ## Metallica
 - [Nothing Else Matters](https://www.youtube.com/watch?v=tAGnKpE4NCI)
 
+## Midnight Oil
+- [Beds Are Burning](https://www.youtube.com/watch?v=ejorQVy3m8E)
+
 ## Motörhead 
 - [Heroes (David Bowie Cover)](https://www.youtube.com/watch?v=J06yQb4lbPk)
 
@@ -827,6 +830,9 @@
 ## Train
 - [Drops of Jupiter](https://www.youtube.com/watch?v=7Xf-Lesrkuc)
 - [Hey, Soul Sister](https://www.youtube.com/watch?v=kVpv8-5XWOI)
+
+## Triumph
+- [Lay It On The Line](https://www.youtube.com/watch?v=gCWj8Nz5DUg)
 
 ## Twisted Sister
 - [I Wanna Rock](https://www.youtube.com/watch?v=SRwrg0db_zY)
