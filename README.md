@@ -157,6 +157,9 @@
 - [Girls Just Want To Have Fun](https://www.youtube.com/watch?v=PIb6AZdTr-A)
 - [Time After Time](https://www.youtube.com/watch?v=VdQY7BusJNU)
 
+## Counting Crows
+- [Mr. Jones](https://www.youtube.com/watch?v=-oqAU5VxFWs)
+
 ## Creedence Clearwater Revival
 - [Born On The Bayou (audio)](https://www.youtube.com/watch?v=fcTQCNntGEs)
 - [Bad Moon Rising (audio)](https://www.youtube.com/watch?v=zUQiUFZ5RDw)
