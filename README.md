@@ -367,6 +367,9 @@
 ## Journey
 - [Don't Stop Believin'](https://www.youtube.com/watch?v=1k8craCGpgs)
 
+## Juice Newton
+- [Angel Of The Morning](https://www.youtube.com/watch?v=HTzGMEfbnAw)
+
 ## Kansas
 - [Carry on Wayward Son](https://www.youtube.com/watch?v=P5ZJui3aPoQ)
 - [Dust in the Wind](https://www.youtube.com/watch?v=tH2w6Oxx0kQ)
@@ -506,6 +509,10 @@
 - [Even flow](https://www.youtube.com/watch?v=CxKWTzr-k6s)
 - [Just Breathe](https://www.youtube.com/watch?v=XTb9GNIxpMk)
 - [Yellow ledbetter](https://www.youtube.com/watch?v=iYtBMgLfqKQ)
+
+## Peter, Paul & Mary
+- [Early in the Morning (audio - 2004 Remaster)](https://www.youtube.com/watch?v=ZmY4bfweM3U)
+- [Early Morning Rain (live)](https://www.youtube.com/watch?v=0OCnHNk2Hac)
 
 ## Pharrell Williams
 - [Happy](https://www.youtube.com/watch?v=ZbZSe6N_BXs)
