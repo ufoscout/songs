@@ -616,6 +616,9 @@
 - [Slade Cum On Feel The Noize (audio)](https://www.youtube.com/watch?v=uTEGxVDHpGU)
 - [Slade Cum On Feel The Noize (live)](https://www.youtube.com/watch?v=Qu_ozjAu_vM)
 
+## Smash Mouth
+- [All Star](https://www.youtube.com/watch?v=L_jWHffIx5E)
+
 ## Soundgarden
 - [Black Hole Sun](https://www.youtube.com/watch?v=3mbBbFH9fAg)
 
