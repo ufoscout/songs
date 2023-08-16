@@ -284,6 +284,9 @@
 ## Georgie Satellites
 - [Keep Your Hands To Yourself](https://www.youtube.com/watch?v=0r7Pbb4ndvI)
 
+## Gogol Bordello
+- [Start Wearing Purple](https://www.youtube.com/watch?v=SkkIwO_X4i4)
+
 ## Goo Goo Dolls
 - [Iris](https://www.youtube.com/watch?v=NdYWuo9OFAw)
 
