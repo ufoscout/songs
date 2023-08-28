@@ -575,6 +575,9 @@
 - [Stand](https://www.youtube.com/watch?v=AKKqLl_ZEEY)
 - [The One I Love](https://www.youtube.com/watch?v=j7oQEPfe-O8)
 
+## Rainbow
+- [Since You've Been Gone](https://www.youtube.com/watch?v=1P17ct4e5OE)
+- 
 ## Ray Charles
 - [Hit the road Jack](https://www.youtube.com/watch?v=uSiHqxgE2d0)
 
