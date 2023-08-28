@@ -590,6 +590,9 @@
 ## Robert Plant & Alison Krauss
 - [Please Read the Letter](https://www.youtube.com/watch?v=SoDuhwnG30Y&list=PL8g0bTbJueB0vtsY-hTSPYPtKrE22K68Z&index=8)
 
+## Robert Tepper
+- [No Easy Way out](https://www.youtube.com/watch?v=rOXaPE6gklI)
+
 ## Roy Orbison
 - [I Drove All Night](https://www.youtube.com/watch?v=m5N9IHqqGcA)
 - [Oh, Pretty Woman](https://www.youtube.com/watch?v=_PLq0_7k1jk)
