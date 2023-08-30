@@ -282,7 +282,7 @@
 - [Bad to the bone (live)](https://www.youtube.com/watch?v=dt_8aDOJvtM)
 
 ## Georgie Satellites
-- [Keep Your Hands To Yourself](https://www.youtube.com/watch?v=0r7Pbb4ndvI)
+- [Keep Your Hands To Yourself](https://www.youtube.com/watch?v=WonOudGMSdc)
 
 ## Gogol Bordello
 - [Start Wearing Purple](https://www.youtube.com/watch?v=SkkIwO_X4i4)
