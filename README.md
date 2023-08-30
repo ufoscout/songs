@@ -223,6 +223,9 @@
 ## Earth, Wind & Fire
 - [September](https://www.youtube.com/watch?v=Gs069dndIYk)
 
+## Electric Light Orchestra (ELO)
+- [Last Train to London](https://www.youtube.com/watch?v=Up4WjdabA2c)
+
 ## Emerson, Lake & Palmer
 - [Fanfare For The Common Man](https://www.youtube.com/watch?v=c2zurZig4L8)
 
