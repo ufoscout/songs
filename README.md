@@ -110,6 +110,14 @@
 - [It's My Life](https://www.youtube.com/watch?v=vx2u5uUu3DE)
 - [Livin' On A Prayer](https://www.youtube.com/watch?v=lDK9QqIzhwk)
 
+## Boney M.
+- [Daddy Cool (Live)](https://www.youtube.com/watch?v=FYGTT7YhywA)
+- [Gotta Go Home (Live)](https://www.youtube.com/watch?v=hBP9txbREWI)
+- [Rivers of Babylon (Live)](https://www.youtube.com/watch?v=l3QxT-w3WMo)
+ 
+## Boston
+- [More Than a Feeling](https://www.youtube.com/watch?v=XWhp4zqfm0A)
+
 ## Bronski Beat
 - [Smalltown Boy](https://www.youtube.com/watch?v=88sARuFu-tc)
 
@@ -157,6 +165,9 @@
 - [Girls Just Want To Have Fun](https://www.youtube.com/watch?v=PIb6AZdTr-A)
 - [Time After Time](https://www.youtube.com/watch?v=VdQY7BusJNU)
 
+## Cock Robin
+- [The Promise You Made](https://www.youtube.com/watch?v=3pk3A_QSINI)
+
 ## Counting Crows
 - [Mr. Jones](https://www.youtube.com/watch?v=-oqAU5VxFWs)
 
@@ -174,6 +185,9 @@
 - [Proud Mary](https://www.youtube.com/watch?v=wP56EcXm9R0)
 - [Run Through The Jungle (audio)](https://www.youtube.com/watch?v=_7PUPNxsRQ0)
 
+## Crowded House
+- [Don't Dream It's Over](https://www.youtube.com/watch?v=J9gKyRmic20)
+
 ## Culture club
 - [Do You Really Want To Hurt Me](https://www.youtube.com/watch?v=2nXGPZaTKik)
 - [Karma Chameleon](https://www.youtube.com/watch?v=JmcA9LIIXWw)
@@ -190,6 +204,7 @@
 - [Highway Star](https://www.youtube.com/watch?v=UAKCR7kQMTQ)
 - [Hush](https://www.youtube.com/watch?v=u1kZ9zYr7kk)
 - [Oh Well (Fleetwood Mac cover)](https://www.youtube.com/watch?v=lTfNINPcjU8)
+- [Perfect Strangers](https://www.youtube.com/watch?v=gZ_kez7WVUU)
 - [Smoke On The Water](https://www.youtube.com/watch?v=1L3XxUxEb6U)
 - [When A Blind Man Cries](https://www.youtube.com/watch?v=ZLJ8XO7pBu4)
 
@@ -266,6 +281,8 @@
 ## Five Finger Death Punch
 - [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
 
+## Frankie Goes To Hollywood
+- [Relax](https://www.youtube.com/watch?v=Yem_iEHiyJ0)
 ## Gabriela Gunčíková
 - [Love Hurts (cover)](https://www.youtube.com/watch?v=xhv4f6FjWNM)
 
@@ -380,6 +397,10 @@
 - [Carry on Wayward Son](https://www.youtube.com/watch?v=P5ZJui3aPoQ)
 - [Dust in the Wind](https://www.youtube.com/watch?v=tH2w6Oxx0kQ)
 
+## Kid Rock
+- [All Summer Long](https://www.youtube.com/watch?v=aSkFygPCTwE)
+- [Born Free](https://www.youtube.com/watch?v=bu3rsha1ZtI)
+ 
 ## Kings Of Leon
 - [Sex on Fire](https://www.youtube.com/watch?v=RF0HhrwIwp0)
 
@@ -637,6 +658,9 @@
 ## Spin Doctors
 - [Two Princes](https://www.youtube.com/watch?v=wsdy_rct6uo)
 
+## Starship
+- [Nothing's Gonna Stop Us Now](https://www.youtube.com/watch?v=3wxyN3z9PL4)
+
 ## Status Quo
 - [Rockin' All Over the World (audio)](https://www.youtube.com/watch?v=fAnP2ck-7o4)
 - [Rockin' All Over the World (Live at Live Aid, Wembley Stadium, 13th July 1985)](https://www.youtube.com/watch?v=eEO6v-YiS00)
@@ -684,6 +708,10 @@
 
 ## Tash Sultana
 - [Jungle (Live)](https://www.youtube.com/watch?v=joq114XAPM8) 
+
+## Tears For Fears
+- [Shout](https://www.youtube.com/watch?v=Ye7FKc1JQe4)
+- [Woman In Chains](https://www.youtube.com/watch?v=O5-c79LQ3aM)
 
 ## Temple Of The Dog
 - [Hunger Strike](https://www.youtube.com/watch?v=VUb450Alpps)
@@ -770,6 +798,9 @@
 - [Self Esteem](https://www.youtube.com/watch?v=Abrn8aVQ76Q)
 - [The Kids Aren't Alright](https://www.youtube.com/watch?v=7iNbnineUCI)
 - [Why Don't You Get A Job?](https://www.youtube.com/watch?v=LH-i8IvYIcg)
+
+## The Outfield
+- [Your Love](https://www.youtube.com/watch?v=4N1iwQxiHrs)
 
 ## The Platters
 - [The Great Pretender (audio)](https://www.youtube.com/watch?v=rwfmbXJEBtY)
