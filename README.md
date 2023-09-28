@@ -281,8 +281,12 @@
 ## Five Finger Death Punch
 - [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
 
+## Foreigner
+- [I Want To Know What Love Is](https://www.youtube.com/watch?v=r3Pr1_v7hsw)
+
 ## Frankie Goes To Hollywood
 - [Relax](https://www.youtube.com/watch?v=Yem_iEHiyJ0)
+
 ## Gabriela Gunčíková
 - [Love Hurts (cover)](https://www.youtube.com/watch?v=xhv4f6FjWNM)
 
@@ -409,6 +413,9 @@
 
 ## Kool & The Gang
 - [Celebration](https://www.youtube.com/watch?v=3GwjfUFyY6M)
+
+## Laura Branigan
+- [Self Control](https://www.youtube.com/watch?v=RP0_8J7uxhs)
 
 ## Led Zeppelin
 - [Black Dog](https://www.youtube.com/watch?v=6tlSx0jkuLM)
