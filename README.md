@@ -79,6 +79,9 @@
 - [Ain't No Sunshine](https://www.youtube.com/watch?v=CICIOJqEb5c)
 - [Lean on me](https://www.youtube.com/watch?v=fOZ-MySzAac)
 
+## Black
+- [Wonderful Life](https://www.youtube.com/watch?v=u1ZoHfJZACA)
+
 ## Blondie
 - [Call Me](https://www.youtube.com/watch?v=StKVS0eI85I)
 - [Heart of Glass](https://www.youtube.com/watch?v=WGU_4-5RaxU)
