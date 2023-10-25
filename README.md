@@ -697,6 +697,9 @@
 ## Sting
 - [Fields Of Gold](https://www.youtube.com/watch?v=KLVq0IAzh1A)
 
+## Supergrass
+- [Alright](https://www.youtube.com/watch?v=qUE4oDunYkc)
+
 ## Survivor
 - [Burning Heart](https://www.youtube.com/watch?v=Kc71KZG87X4)
 - [Eye Of The Tiger](https://www.youtube.com/watch?v=btPJPFnesV4)
