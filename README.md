@@ -90,6 +90,9 @@
 - [One way or another (Top of the Pop)](https://www.youtube.com/watch?v=FIXIsYWS8CA)
 - [Maria (Official Video)](https://www.youtube.com/watch?v=abw49k3rIN0)
 
+## Blur
+- [Song 2](https://www.youtube.com/watch?v=SSbBvKaM6sk)
+
 ## Bob Gedolf and The Boomtown Rats
 - [I Don't Like Mondays](https://www.youtube.com/watch?v=-Kobdb37Cwc)
 - [Room 19 (Sha La La La Lee)](https://www.youtube.com/watch?v=GcQeZsYrPp4)
@@ -835,6 +838,7 @@
 
 ## The Rolling Stones
 - [Angie](https://www.youtube.com/watch?v=RcZn2-bGXqQ)
+- [Angry](https://www.youtube.com/watch?v=_mEC54eTuGw)
 - [Don't stop (live)](https://www.youtube.com/watch?v=sgFcMFY4bkU)
 - [Don't stop](https://www.youtube.com/watch?v=aNX_UCEzu7w)
 - [(I Can't Get No) Satisfaction (Live on The Ed Sullivan Show)](https://www.youtube.com/watch?v=1ANhU4AcK04)
