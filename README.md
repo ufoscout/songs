@@ -410,6 +410,7 @@
 ## Kid Rock
 - [All Summer Long](https://www.youtube.com/watch?v=aSkFygPCTwE)
 - [Born Free](https://www.youtube.com/watch?v=bu3rsha1ZtI)
+- [Picture feat. Sheryl Crow](https://www.youtube.com/watch?v=rKFx0MMqb48)
  
 ## Kings Of Leon
 - [Sex on Fire](https://www.youtube.com/watch?v=RF0HhrwIwp0)
