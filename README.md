@@ -500,6 +500,14 @@
 ## Nazareth 
 - [Love Hurts](https://www.youtube.com/watch?v=vOn0z0IRVN8)
 
+## Neil Diamond
+- [Cherry, Cherry (Audio)](https://www.youtube.com/watch?v=0QsTMqUfDDw)
+- [Cherry, Cherry (Live At The Greek Theatre / 2012)](https://www.youtube.com/watch?v=h51vsFYhEUk)
+- [Cracklin' Rosie (Audio)](https://www.youtube.com/watch?v=qzO023mvDQo)
+- [Solitary Man (Audio)](https://www.youtube.com/watch?v=yLilTP5WAU0)
+- [Soolaimon (Audio)](https://www.youtube.com/watch?v=zySAW_cOfQ8)
+- [Sweet Caroline (Audio)](https://www.youtube.com/watch?v=4F_RCWVoL4s)
+
 ## Neil Young
 - [Harvest Moon](https://www.youtube.com/watch?v=n2MtEsrcTTs)
 - [Heart of Gold](https://www.youtube.com/watch?v=WZn9QZykx10)
