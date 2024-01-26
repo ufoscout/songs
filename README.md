@@ -515,7 +515,7 @@
 - [Rockin' in the Free World](https://www.youtube.com/watch?v=DvxxdZpMFHg)
 
 ## Nickelback
-- [Burn It To The Ground](https://www.youtube.com/watch?v=q0HElo91a4s)
+- [Burn It To The Ground](https://www.youtube.com/watch?v=BxgeSv88c2w)
 - [How You Remind Me](https://www.youtube.com/watch?v=1cQh1ccqu8M)
 
 ## Nirvana
@@ -810,6 +810,7 @@
 - [My Sharona](https://www.youtube.com/watch?v=bbr60I0u2Ng)
 
 ## The Lumineers
+- [Ho Hey](https://www.youtube.com/watch?v=zvCBSSwgtg4)
 
 ## The Mamas & The Papas
 - [California Dreamin'](https://www.youtube.com/watch?v=N-aK6JnyFmk)
