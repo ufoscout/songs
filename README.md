@@ -471,6 +471,9 @@
 ## Maroon 5
 - [Memories](https://www.youtube.com/watch?v=SlPhMPnQ58k)
 
+## Marvin Gaye
+- [I heard it through the grapevine](https://www.youtube.com/watch?v=cXWHpbpNdHE)
+
 ## Meat Loaf
 - [Bat Out of Hell](https://www.youtube.com/watch?v=3QGMCSCFoKA)
 - [I'd Do Anything For Love (But I Won't Do That)](https://www.youtube.com/watch?v=9X_ViIPA-Gc)
@@ -744,6 +747,9 @@
 
 ## Tesla
 - [What You Give](https://www.youtube.com/watch?v=9vwHuCC6nP8)
+
+## The Archies
+- [Sugar Sugar (audio)](https://www.youtube.com/watch?v=C7T4aQMxTTM)
 
 ## The Band
 - [The Weight (audio)](https://www.youtube.com/watch?v=QWu-f7HFFJE)
