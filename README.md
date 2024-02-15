@@ -893,7 +893,7 @@
 - [Baba O'Riley (live)](https://www.youtube.com/watch?v=Gu9HhYv0C7E)
 - [I Can't Explain](https://www.youtube.com/watch?v=h3h--K5928M)
 - [Join Together](https://www.youtube.com/watch?v=_HDMCCLlGl4)
-- [Pinball Wizard (with Elton John)](https://www.youtube.com/watch?v=DthtDjhqVOU)
+- [Pinball Wizard](https://www.youtube.com/watch?v=hHc7bR6y06M)
 - [Substitute](https://www.youtube.com/watch?v=eswQl-hcvU0)
 - [You Better You Bet](https://www.youtube.com/watch?v=wqPlb5PLBvg)
 - [Who are you (live)](https://www.youtube.com/watch?v=PNbBDrceCy8)
