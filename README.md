@@ -314,6 +314,9 @@
 ## Georgie Satellites
 - [Keep Your Hands To Yourself](https://www.youtube.com/watch?v=WonOudGMSdc)
 
+## Gnarls Barkley
+- [Crazy](https://www.youtube.com/watch?v=-N4jf6rtyuw)
+
 ## Gogol Bordello
 - [Start Wearing Purple](https://www.youtube.com/watch?v=SkkIwO_X4i4)
 
