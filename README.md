@@ -66,6 +66,9 @@
 ## Ben E. King
 - [Stand by me](https://www.youtube.com/watch?v=hwZNL7QVJjE)
 
+## Beyoncé
+- [Texas Hold 'em](https://www.youtube.com/watch?v=ycwtqqhV6UE)
+
 ## Billy Idol
 - [Dancing with myself](https://www.youtube.com/watch?v=FG1NrQYXjLU)
 - [Eyes Without A Face](https://www.youtube.com/watch?v=9OFpfTd0EIs)
