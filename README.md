@@ -334,6 +334,7 @@
 - [American Idiot](https://www.youtube.com/watch?v=Ee_uujKuJMI)
 - [Basket Case](https://www.youtube.com/watch?v=NUTGr5t3MoY)
 - [Boulevard Of Broken Dreams](https://www.youtube.com/watch?v=Soa3gO7tL-c)
+- [Good Riddance (Time of Your Life)](https://www.youtube.com/watch?v=CnQ8N1KacJc)
 
 ## Greta Van Fleet
 - [Highway Tune](https://www.youtube.com/watch?v=aJg4OJxp-co)
