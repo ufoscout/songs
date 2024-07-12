@@ -664,6 +664,10 @@
 ## Scorpions
 - [Wind Of Change](https://www.youtube.com/watch?v=n4RjJKxsamQ)
 
+## Shania Twain
+- [Man! I Feel Like A Woman!](https://www.youtube.com/watch?v=ZJL4UGSbeFg)
+- [That Don't Impress Me Much](https://www.youtube.com/watch?v=mqFLXayD6e8)
+
 ## Shocking Blue
 - [Venus](https://www.youtube.com/watch?v=8LhkyyCvUHk)
  
