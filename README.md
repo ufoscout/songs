@@ -776,6 +776,9 @@
 ## The Beatles
 - [Don't let me down](https://www.youtube.com/watch?v=NCtzkaL2t_Y)
 
+## The Byrds
+- [Turn! Turn! Turn! (To Everything There Is A Season)](https://www.youtube.com/watch?v=xVOJla2vYx8)
+
 ## The Clash
 - [Should I Stay or Should I Go (live)](https://www.youtube.com/watch?v=8-cjjzNbg70)
 - [Should I Stay or Should I Go (audio)](https://www.youtube.com/watch?v=wjZMcWaniA4)
