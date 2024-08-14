@@ -402,6 +402,9 @@
 - [Hurts So Good](https://www.youtube.com/watch?v=4dOsbsuhYGQ)
 - [Jack & Diane](https://www.youtube.com/watch?v=h04CH9YZcpI)
 
+## John Parr
+- [St. Elmo's Fire](https://www.youtube.com/watch?v=dx7vNdAb5e4)
+
 ## Johnny Cash
 - [Hurt](https://www.youtube.com/watch?v=8AHCfZTRGiI)
 
