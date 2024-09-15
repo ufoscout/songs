@@ -778,7 +778,19 @@
 - [Wouldn't It Be Nice](https://www.youtube.com/watch?v=5lP8BZcyoEQ)
 
 ## The Beatles
+- [A Day In The Life](https://www.youtube.com/watch?v=usNsCeOV4GM)
+- [Come Together](https://www.youtube.com/watch?v=45cYwDMibGo)
 - [Don't let me down](https://www.youtube.com/watch?v=NCtzkaL2t_Y)
+- [Eleanor Rigby](https://www.youtube.com/watch?v=HuS5NuXRb5Y)
+- [Hey Jude](https://www.youtube.com/watch?v=A_MjCqQoLLA)
+- [Here comes the sun](https://www.youtube.com/watch?v=KQetemT1sWc)
+- [Let it be](https://www.youtube.com/watch?v=CGj85pVzRJs)
+- [Penny Lane](https://www.youtube.com/watch?v=S-rB0pHI9fU)
+- [The long and winding road](https://www.youtube.com/watch?v=NR0u_qjq2fM)
+- [Yellow Submarine](https://www.youtube.com/watch?v=m2uTFF_3MaA)
+- [Yesterday](https://www.youtube.com/watch?v=fCV9oqtwyVA)
+- [We Can Work It Out](https://www.youtube.com/watch?v=Qyclqo_AV2M)
+- [While My Guitar Gently Weeps](https://www.youtube.com/watch?v=VJDJs9dumZI)
 
 ## The Byrds
 - [Turn! Turn! Turn! (To Everything There Is A Season)](https://www.youtube.com/watch?v=xVOJla2vYx8)
