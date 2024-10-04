@@ -447,6 +447,9 @@
 ## Lewis Capaldi
 - [Someone You Loved](https://www.youtube.com/watch?v=zABLecsR5UE)
 
+## Lipps Inc.
+- [Funkytown](https://www.youtube.com/watch?v=uhzy7JaU2Zc)
+
 ## Liquido
 - [Narcotic](https://www.youtube.com/watch?v=PJ7E40Ec5ec)
 
