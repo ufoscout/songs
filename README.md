@@ -437,6 +437,7 @@
 - [Self Control](https://www.youtube.com/watch?v=RP0_8J7uxhs)
 
 ## Led Zeppelin
+- [All my love](https://www.youtube.com/watch?v=vwFz3EThGMU)
 - [Black Dog](https://www.youtube.com/watch?v=6tlSx0jkuLM)
 - [Immigrant Song](https://www.youtube.com/watch?v=RlNhD0oS5pk)
 - [Kashmir](https://www.youtube.com/watch?v=tzVJPgCn-Z8)
