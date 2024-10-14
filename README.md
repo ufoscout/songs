@@ -3,6 +3,25 @@
 ## 4 Non Blondes
 - [What's Up](https://www.youtube.com/watch?v=6NXnxTNIWkc)
 
+## ABBA
+- [Chiquitita](https://www.youtube.com/watch?v=p4QqMKe3rwY)
+- [Dancing Queen](https://www.youtube.com/watch?v=xFrGuyw1V8s)
+- [Does Your Mother Know](https://www.youtube.com/watch?v=WkL7Fkigfn8)
+- [Fernando](https://www.youtube.com/watch?v=dQsjAbZDx-4)
+- [Gimme! Gimme! Gimme! (A Man After Midnight)](https://www.youtube.com/watch?v=XEjLoHdbVeE)
+- [Honey, Honey](https://www.youtube.com/watch?v=hSy7bWlsbGU)
+- [I Do, I Do, I Do, I Do, I Do](https://www.youtube.com/watch?v=tW3HN_pvbE4)
+- [Knowing Me, Knowing You](https://www.youtube.com/watch?v=iUrzicaiRLU)
+- [Lay All Your Love On Me](https://www.youtube.com/watch?v=ulZQTrV8QlQ)
+- [Mamma Mia](https://www.youtube.com/watch?v=unfzfe8f9NI)
+- [Money, Money, Money](https://www.youtube.com/watch?v=ETxmCCsMoD0)
+- [Ring, Ring](https://www.youtube.com/watch?v=TL0EoXdpOqg)
+- [SOS](https://www.youtube.com/watch?v=cvChjHcABPA)
+- [Super Trouper](https://www.youtube.com/watch?v=BshxCIjNEjY)
+- [Take A Chance On Me](https://www.youtube.com/watch?v=-crgQGdpZR0)
+- [The Winner Takes It All](https://www.youtube.com/watch?v=92cwKCU8Z5c)
+- [Waterloo](https://www.youtube.com/watch?v=Sj_9CiNkkn4)
+
 ## AC/DC
 - [Back In Black](https://www.youtube.com/watch?v=pAgnJDJN4VA)
 - [Back In Black (Live at River Plate, 2009)](https://www.youtube.com/watch?v=j5rGm3kdTuk)
