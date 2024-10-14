@@ -308,6 +308,9 @@
 - [Budapest](https://www.youtube.com/watch?v=VHrLPs3_1Fs)
 - [Listen to the Man](https://www.youtube.com/watch?v=ZS0WvzRVByg&list=RDMM&start_radio=1)
 
+## George Harrison
+- [My Sweet Lord](https://www.youtube.com/watch?v=6wHBsMoHFWs)
+
 ## George Michael
 - [Careless Whisper](https://www.youtube.com/watch?v=izGwDsrQ1eQ)
 
