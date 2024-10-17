@@ -3,6 +3,9 @@
 ## 4 Non Blondes
 - [What's Up](https://www.youtube.com/watch?v=6NXnxTNIWkc)
 
+## a-ha
+- [Take On Me](https://www.youtube.com/watch?v=djV11Xbc914)
+
 ## ABBA
 - [Chiquitita](https://www.youtube.com/watch?v=p4QqMKe3rwY)
 - [Dancing Queen](https://www.youtube.com/watch?v=xFrGuyw1V8s)
@@ -225,6 +228,9 @@
 - [Heroes](https://www.youtube.com/watch?v=lXgkuM2NhYI)
 - [Heroes (Live)](https://www.youtube.com/watch?v=bsYp9q3QNaQ)
 
+## Dead Or Alive
+- [You Spin Me Round (Like a Record)](https://www.youtube.com/watch?v=PGNiXGX2nLU)
+
 ## Def Leppard
 - [Pour Some Sugar On Me](https://www.youtube.com/watch?v=Rqs4cMyMLnY)
 
@@ -439,6 +445,10 @@
 ## Kansas
 - [Carry on Wayward Son](https://www.youtube.com/watch?v=P5ZJui3aPoQ)
 - [Dust in the Wind](https://www.youtube.com/watch?v=tH2w6Oxx0kQ)
+
+## Katrina & The Waves
+- [Walking On Sunshine](https://www.youtube.com/watch?v=iPUmE-tne5U)
+- [Walking On Sunshine (Lyrics - Better Audio)](https://www.youtube.com/watch?v=qK5KhQG06xU)
 
 ## Kid Rock
 - [All Summer Long](https://www.youtube.com/watch?v=aSkFygPCTwE)
@@ -818,6 +828,9 @@
 - [We Can Work It Out](https://www.youtube.com/watch?v=Qyclqo_AV2M)
 - [While My Guitar Gently Weeps](https://www.youtube.com/watch?v=VJDJs9dumZI)
 
+## The Buggles
+- [Video Killed The Radio Star](https://www.youtube.com/watch?v=W8r-tXRLazs)
+
 ## The Byrds
 - [Turn! Turn! Turn! (To Everything There Is A Season)](https://www.youtube.com/watch?v=xVOJla2vYx8)
 
@@ -971,6 +984,9 @@
 
 ## Tommy James & The Shondells
 - [Crimson and Clover](https://www.youtube.com/watch?v=GpGEeneO-t0)
+
+## Tommy Tutone
+- [867-5309 / Jenny (Lyrics)](https://www.youtube.com/watch?v=UVwKxz0e2sE)
 
 ## Toto
 - [Hold The Line](https://www.youtube.com/watch?v=htgr3pvBr-I)
