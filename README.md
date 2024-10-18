@@ -385,6 +385,9 @@
 - [Alone](https://www.youtube.com/watch?v=1Cw1ng75KP0)
 - [Barracuda](https://www.youtube.com/watch?v=PeMvMNpvB5M)
 
+## Hozier
+- [Too sweet](https://www.youtube.com/watch?v=NTpbbQUBbuo)
+
 ## Ian Hunter
 - [Bed of Roses](https://www.youtube.com/watch?v=B1B-oHjTiI0)
 
