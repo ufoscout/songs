@@ -691,6 +691,10 @@
 ## Righteous Brothers
 - [Unchained Melody](https://www.youtube.com/watch?v=qiiyq2xrSI0)
 
+## Rival Sons
+- [Open My Eyes](https://www.youtube.com/watch?v=WnEZzLSPNZY)
+- [Where I've Been](https://www.youtube.com/watch?v=3s_o2BenLkk)
+
 ## Robert Plant & Alison Krauss
 - [Please Read the Letter](https://www.youtube.com/watch?v=SoDuhwnG30Y&list=PL8g0bTbJueB0vtsY-hTSPYPtKrE22K68Z&index=8)
 
@@ -703,6 +707,10 @@
 
 ## Rush
 - [Tom Sawyer](https://www.youtube.com/watch?v=auLBLk4ibAk)
+
+## Sam Fender
+- [People Watching](https://www.youtube.com/watch?v=DHzaHMmXB6Y)
+- [Seventeen going down](https://www.youtube.com/watch?v=WAifgn2Cvo8)
 
 ## Scorpions
 - [Wind Of Change](https://www.youtube.com/watch?v=n4RjJKxsamQ)
