@@ -575,6 +575,9 @@
 ## Nirvana
 - [Smells like teen spirit](https://www.youtube.com/watch?v=ft_DaIxrbLk)
 
+## No doubt
+- [Don't speak](https://www.youtube.com/watch?v=TR3Vdo5etCQ)
+
 ## Norman Greenbaum
 - [Spirit In The Sky](https://www.youtube.com/watch?v=vRFo72wuU6w)
 
