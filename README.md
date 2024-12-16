@@ -577,6 +577,7 @@
 
 ## No doubt
 - [Don't speak](https://www.youtube.com/watch?v=TR3Vdo5etCQ)
+- [Just A Girl](https://www.youtube.com/watch?v=PHzOOQfhPFg)
 
 ## Norman Greenbaum
 - [Spirit In The Sky](https://www.youtube.com/watch?v=vRFo72wuU6w)
