@@ -625,6 +625,9 @@
 ## Pharrell Williams
 - [Happy](https://www.youtube.com/watch?v=ZbZSe6N_BXs)
 
+## Pixies
+- [Where Is My Mind?](https://www.youtube.com/watch?v=OJ62RzJkYUo)
+  
 ## Playing For Change
 - [All Along The Watchtower (Bob Dylan cover)](https://www.youtube.com/watch?v=-UHHc7POovg)
 - [Sittin' On The Dock Of The Bay (Otis Redding Cover)](https://www.youtube.com/watch?v=Es3Vsfzdr14)
@@ -679,6 +682,10 @@
 - [Shiny Happy People](https://www.youtube.com/watch?v=YYOKMUTTDdA)
 - [Stand](https://www.youtube.com/watch?v=AKKqLl_ZEEY)
 - [The One I Love](https://www.youtube.com/watch?v=j7oQEPfe-O8)
+
+## Radiohead
+- [Creep](https://www.youtube.com/watch?v=XFkzRNyygfk)
+- [High and Dry](https://www.youtube.com/watch?v=7qFfFVSerQo)
 
 ## Rainbow
 - [Since You've Been Gone](https://www.youtube.com/watch?v=1P17ct4e5OE)
@@ -885,6 +892,8 @@
 - [Roadhouse Blues](https://www.youtube.com/watch?v=yV9DJwJKWMw)
 - [Roadhouse Blues (live)](https://www.youtube.com/watch?v=kE32pvvaDT8)
 - [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
+
+
 
 ## The Great Society
 - [Someone to Love](https://www.youtube.com/watch?v=Rw7BSVBrpTg)
