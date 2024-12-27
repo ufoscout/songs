@@ -885,6 +885,13 @@
 - [Lullaby](https://www.youtube.com/watch?v=ijxk-fgcg7c)
 - [Pictures Of You](https://www.youtube.com/watch?v=UmFFTkjs-O0)
 
+## The Darkness
+- [Christmas Time (Don't Let the Bells End)](https://www.youtube.com/watch?v=lrVg1toMzuo)
+- [I Believe In A Thing Called Love](https://www.youtube.com/watch?v=tKjZuykKY1I)
+- [I Hate Myself](https://www.youtube.com/watch?v=v4I7WBWSs2I)
+- [Is It Just Me?](https://www.youtube.com/watch?v=RAejxjC_PBs)
+- [Love Is Only A Feeling](https://www.youtube.com/watch?v=QSGa1dW_KoE)
+
 ## The Doors
 - [Break on Through](https://www.youtube.com/watch?v=NFeUko-lQHg)
 - [Light my fire](https://www.youtube.com/watch?v=mbj1RFaoyLk)
@@ -892,8 +899,6 @@
 - [Roadhouse Blues](https://www.youtube.com/watch?v=yV9DJwJKWMw)
 - [Roadhouse Blues (live)](https://www.youtube.com/watch?v=kE32pvvaDT8)
 - [The end](https://www.youtube.com/watch?v=BXqPNlng6uI)
-
-
 
 ## The Great Society
 - [Someone to Love](https://www.youtube.com/watch?v=Rw7BSVBrpTg)
