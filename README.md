@@ -253,6 +253,9 @@
 ## Don McLean
 - [American Pie](https://www.youtube.com/watch?v=PRpiBpDy7MQ)
 
+## Donovan
+- [Catch the wind](https://www.youtube.com/watch?v=Iuc9_46wf7I)
+
 ## Eagles
 - [Hotel California (audio)](https://www.youtube.com/watch?v=BciS5krYL80)
 - [Take it easy (audio)](https://www.youtube.com/watch?v=VzEmHYEggxM)
