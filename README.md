@@ -108,6 +108,11 @@
 ## Black
 - [Wonderful Life](https://www.youtube.com/watch?v=u1ZoHfJZACA)
 
+## Black Sabbath
+- [Iron Man](https://www.youtube.com/watch?v=pOfBdvuky1s)
+- [Paranoid](https://www.youtube.com/watch?v=0qanF-91aJo)
+- [War Pigs](https://www.youtube.com/watch?v=6csiUGMC1fk)
+
 ## Blondie
 - [Call Me](https://www.youtube.com/watch?v=StKVS0eI85I)
 - [Heart of Glass](https://www.youtube.com/watch?v=WGU_4-5RaxU)
