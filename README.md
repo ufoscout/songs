@@ -999,6 +999,7 @@
 ## The Who
 - [Baba O'Riley (audio)](https://www.youtube.com/watch?v=QRTNm6GLJYI)
 - [Baba O'Riley (live)](https://www.youtube.com/watch?v=Gu9HhYv0C7E)
+- [Behind Blue Eyes](https://www.youtube.com/watch?v=KmbCOMM8peo)
 - [I Can't Explain](https://www.youtube.com/watch?v=h3h--K5928M)
 - [Join Together](https://www.youtube.com/watch?v=_HDMCCLlGl4)
 - [Pinball Wizard](https://www.youtube.com/watch?v=hHc7bR6y06M)
