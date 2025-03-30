@@ -324,6 +324,9 @@
 ## Five Finger Death Punch
 - [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
 
+## Foghat
+- [Slow ride](https://www.youtube.com/watch?v=leVXA1urMg4)
+
 ## Foreigner
 - [I Want To Know What Love Is](https://www.youtube.com/watch?v=r3Pr1_v7hsw)
 
