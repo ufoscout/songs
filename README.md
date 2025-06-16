@@ -620,6 +620,9 @@
 - [Thunder and Lightning](https://www.youtube.com/watch?v=tL2gxFoUZuE)
 - [When we were young](https://www.youtube.com/watch?v=hef9UEHQisY)
 
+## Paul Simon
+- [You Can Call Me Al](https://www.youtube.com/watch?v=uq-gYOrU8bA)
+
 ## Pearl Jam
 - [Alive](https://www.youtube.com/watch?v=qM0zINtulhM)
 - [Better Man](https://www.youtube.com/watch?v=nDK-wsdEhNE)
