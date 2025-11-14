@@ -165,6 +165,9 @@
 - [I'm On Fire](https://www.youtube.com/watch?v=lrpXArn3hII)
 - [Streets of Philadelphia](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 
+## Bruno Mars
+- [Just The Way You Are](https://www.youtube.com/watch?v=LjhCEhWiKXk&list=RDLjhCEhWiKXk&start_radio=1)
+
 ## Bryan Adams
 - [Have You Ever Really Loved A Woman?](https://www.youtube.com/watch?v=hq2KgzKETBw)
 - [Heaven](https://www.youtube.com/watch?v=s6TtwR2Dbjg)
