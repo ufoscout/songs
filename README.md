@@ -538,6 +538,9 @@
 ## Marvin Gaye
 - [I heard it through the grapevine](https://www.youtube.com/watch?v=cXWHpbpNdHE)
 
+## Mazzy Star
+ - [Fade Into You](https://www.youtube.com/watch?v=ImKY6TZEyrI)
+
 ## Meat Loaf
 - [Bat Out of Hell](https://www.youtube.com/watch?v=3QGMCSCFoKA)
 - [I'd Do Anything For Love (But I Won't Do That)](https://www.youtube.com/watch?v=9X_ViIPA-Gc)
