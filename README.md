@@ -366,6 +366,9 @@
 ## Gogol Bordello
 - [Start Wearing Purple](https://www.youtube.com/watch?v=SkkIwO_X4i4)
 
+## Golden Earring
+- [Radar Love](https://www.youtube.com/watch?v=aRlSHG5hRY4&list=RDaRlSHG5hRY4&start_radio=1)
+
 ## Goo Goo Dolls
 - [Iris](https://www.youtube.com/watch?v=NdYWuo9OFAw)
 
