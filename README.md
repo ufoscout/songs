@@ -629,6 +629,9 @@
 - [Thunder and Lightning](https://www.youtube.com/watch?v=tL2gxFoUZuE)
 - [When we were young](https://www.youtube.com/watch?v=hef9UEHQisY)
 
+## Paul McCartney
+- [Days We Left Behind](https://www.youtube.com/watch?v=2n1IhyF6R0U&list=RD2n1IhyF6R0U&start_radio=1)
+ 
 ## Paul Simon
 - [You Can Call Me Al](https://www.youtube.com/watch?v=uq-gYOrU8bA)
 
