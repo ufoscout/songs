@@ -276,6 +276,7 @@
 - [The Long Road (with Nusrat fateh ali Khan)](https://www.youtube.com/watch?v=-b33vOZKcS0)
 
 ## Elvis Presley
+- [The Wonder of You](https://www.youtube.com/watch?v=plNdelzFCAY&list=RDplNdelzFCAY&start_radio=1)
 
 ## Enya
 - [Caribbean Blue](https://www.youtube.com/watch?v=Jl8iYAo90pE)
