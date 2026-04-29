@@ -60,7 +60,7 @@
 - [Bongo Bong (Manu Chao cover)](https://www.youtube.com/watch?v=grZGX2jqIT0)
 - [Grey](https://www.youtube.com/watch?v=DluS-5m0d8E)
 - [Ocean | Mahogany Session](https://www.youtube.com/watch?v=SZo0UYm13TE)
-- [Orbit (Live Session)](https://www.youtube.com/watch?v=BspiVgfaJR8&list=RDGMEMc6JZQrQ__ROET3gGdz-Trw&start_radio=1)
+- [Orbit (Live Session)](https://www.youtube.com/watch?v=BspiVgfaJR8)
 - [She](https://www.youtube.com/watch?v=d7Pt9ul_E_I)
 - [She (Live)](https://www.youtube.com/watch?v=NPH9j0qVM3A)
 - [Walk on the wild side (Lou Reed Cover)](https://www.youtube.com/watch?v=WVBfmOYvTiI)
@@ -166,7 +166,7 @@
 - [Streets of Philadelphia](https://www.youtube.com/watch?v=4z2DtNW79sQ)
 
 ## Bruno Mars
-- [Just The Way You Are](https://www.youtube.com/watch?v=LjhCEhWiKXk&list=RDLjhCEhWiKXk&start_radio=1)
+- [Just The Way You Are](https://www.youtube.com/watch?v=LjhCEhWiKXk)
 
 ## Bryan Adams
 - [Have You Ever Really Loved A Woman?](https://www.youtube.com/watch?v=hq2KgzKETBw)
@@ -276,7 +276,7 @@
 - [The Long Road (with Nusrat fateh ali Khan)](https://www.youtube.com/watch?v=-b33vOZKcS0)
 
 ## Elvis Presley
-- [The Wonder of You](https://www.youtube.com/watch?v=plNdelzFCAY&list=RDplNdelzFCAY&start_radio=1)
+- [The Wonder of You](https://www.youtube.com/watch?v=plNdelzFCAY)
 
 ## Enya
 - [Caribbean Blue](https://www.youtube.com/watch?v=Jl8iYAo90pE)
@@ -326,7 +326,7 @@
 - [The Lion's Roar](https://www.youtube.com/watch?v=gekHV9DIjHc)
 
 ## Five Finger Death Punch
-- [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8&list=RDMM&index=7)
+- [Wash It All Away](https://www.youtube.com/watch?v=l9VFg44H2z8)
 
 ## Foghat
 - [Slow ride](https://www.youtube.com/watch?v=leVXA1urMg4)
@@ -346,7 +346,7 @@
 ## George Ezra
 - [Blame It on Me](https://www.youtube.com/watch?v=H4ifSrE8iSg)
 - [Budapest](https://www.youtube.com/watch?v=VHrLPs3_1Fs)
-- [Listen to the Man](https://www.youtube.com/watch?v=ZS0WvzRVByg&list=RDMM&start_radio=1)
+- [Listen to the Man](https://www.youtube.com/watch?v=ZS0WvzRVByg)
 
 ## George Harrison
 - [My Sweet Lord](https://www.youtube.com/watch?v=6wHBsMoHFWs)
@@ -368,7 +368,7 @@
 - [Start Wearing Purple](https://www.youtube.com/watch?v=SkkIwO_X4i4)
 
 ## Golden Earring
-- [Radar Love](https://www.youtube.com/watch?v=aRlSHG5hRY4&list=RDaRlSHG5hRY4&start_radio=1)
+- [Radar Love](https://www.youtube.com/watch?v=aRlSHG5hRY4)
 
 ## Goo Goo Dolls
 - [Iris](https://www.youtube.com/watch?v=NdYWuo9OFAw)
@@ -402,6 +402,10 @@
 - [All I Wanna Do Is Make Love To You](https://www.youtube.com/watch?v=OAfxs0IDeMs)
 - [Alone](https://www.youtube.com/watch?v=1Cw1ng75KP0)
 - [Barracuda](https://www.youtube.com/watch?v=PeMvMNpvB5M)
+
+## Hot Chocolate
+- [Emma](https://www.youtube.com/watch?v=IUltfqiyOqI)
+- [You Sexy Thing](https://www.youtube.com/watch?v=fx841-D0wSM)
 
 ## Hozier
 - [Too sweet](https://www.youtube.com/watch?v=NTpbbQUBbuo)
@@ -519,7 +523,7 @@
 - [Hey Lou](https://www.youtube.com/watch?v=K4LcFHMjH9k)
 
 ## Lynyrd Skynyrd
-- [Call me the Breeze](https://www.youtube.com/watch?v=OSx-ADqyD9M&list=OLAK5uy_kCn2HfAbiilksQUB44tRt5VGkv-SUWNe4&index=7)
+- [Call me the Breeze](https://www.youtube.com/watch?v=OSx-ADqyD9M)
 - [Free bird (audio)](https://www.youtube.com/watch?v=CqnU_sJ8V-E)
 - [Free bird (Live 1977)](https://www.youtube.com/watch?v=QxIWDmmqZzY)
 - [Simple Man (audio)](https://www.youtube.com/watch?v=l-5aPNxv-pU)
@@ -620,7 +624,7 @@
 - [No More Tears](https://www.youtube.com/watch?v=CprfjfN5PRs)
 
 ## Passenger
-- [27](https://www.youtube.com/watch?v=l4WKh5UqtXc&list=RDMM&index=8)
+- [27](https://www.youtube.com/watch?v=l4WKh5UqtXc)
 - [Golden Leaves](https://www.youtube.com/watch?v=ytmLIv4TrUs)
 - [Heart's on fire](https://www.youtube.com/watch?v=kBqqlW6-99M)
 - [Holes](https://www.youtube.com/watch?v=OW7WH2j4Y3o)
@@ -631,7 +635,7 @@
 - [When we were young](https://www.youtube.com/watch?v=hef9UEHQisY)
 
 ## Paul McCartney
-- [Days We Left Behind](https://www.youtube.com/watch?v=2n1IhyF6R0U&list=RD2n1IhyF6R0U&start_radio=1)
+- [Days We Left Behind](https://www.youtube.com/watch?v=2n1IhyF6R0U)
  
 ## Paul Simon
 - [You Can Call Me Al](https://www.youtube.com/watch?v=uq-gYOrU8bA)
@@ -734,7 +738,7 @@
 - [Where I've Been](https://www.youtube.com/watch?v=3s_o2BenLkk)
 
 ## Robert Plant & Alison Krauss
-- [Please Read the Letter](https://www.youtube.com/watch?v=SoDuhwnG30Y&list=PL8g0bTbJueB0vtsY-hTSPYPtKrE22K68Z&index=8)
+- [Please Read the Letter](https://www.youtube.com/watch?v=SoDuhwnG30Y)
 
 ## Robert Tepper
 - [No Easy Way out](https://www.youtube.com/watch?v=rOXaPE6gklI)
