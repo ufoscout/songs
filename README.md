@@ -560,6 +560,9 @@
 ## Metallica
 - [Nothing Else Matters](https://www.youtube.com/watch?v=tAGnKpE4NCI)
 
+## Midge Ure
+- [Breathe](https://www.youtube.com/watch?v=XCgjXAS0NBY)
+
 ## Midnight Oil
 - [Beds Are Burning](https://www.youtube.com/watch?v=ejorQVy3m8E)
 
@@ -603,6 +606,9 @@
 ## No doubt
 - [Don't speak](https://www.youtube.com/watch?v=TR3Vdo5etCQ)
 - [Just A Girl](https://www.youtube.com/watch?v=PHzOOQfhPFg)
+
+## Noir Désir
+- [Le Vent Nous Portera](https://www.youtube.com/watch?v=NrgcRvBJYBE)
 
 ## Norman Greenbaum
 - [Spirit In The Sky](https://www.youtube.com/watch?v=vRFo72wuU6w)
