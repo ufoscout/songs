@@ -990,6 +990,10 @@
 - [This Charming Man](https://www.youtube.com/watch?v=cJRP3LRcUFg)
 - [Please, Please, Please, Let Me Get What I Want (audio)](https://www.youtube.com/watch?v=w3qPMe_cCJk)
 
+## The Struts
+- [Could Have Been Me](https://www.youtube.com/watch?v=ARhk9K_mviE)
+- [Could Have Been Me (feat. Brian May)](https://www.youtube.com/watch?v=mGyMY6aU-9g)
+
 ## The Rolling Stones
 - [Angie](https://www.youtube.com/watch?v=RcZn2-bGXqQ)
 - [Angry](https://www.youtube.com/watch?v=_mEC54eTuGw)
