@@ -566,6 +566,9 @@
 ## Midnight Oil
 - [Beds Are Burning](https://www.youtube.com/watch?v=ejorQVy3m8E)
 
+## Mika
+- [Grace Kelly](https://www.youtube.com/watch?v=0CGVgAYJyjk)
+
 ## Motörhead 
 - [Heroes (David Bowie Cover)](https://www.youtube.com/watch?v=J06yQb4lbPk)
 
