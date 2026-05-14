@@ -991,8 +991,11 @@
 - [Please, Please, Please, Let Me Get What I Want (audio)](https://www.youtube.com/watch?v=w3qPMe_cCJk)
 
 ## The Struts
+- [Body Talks](https://www.youtube.com/watch?v=Hc3XIbUuTMc)
+- [Body Talks ft. Kesha](https://www.youtube.com/watch?v=GcvBnhq0lFA)
 - [Could Have Been Me](https://www.youtube.com/watch?v=ARhk9K_mviE)
 - [Could Have Been Me (feat. Brian May)](https://www.youtube.com/watch?v=mGyMY6aU-9g)
+- [In Love With A Camera](https://www.youtube.com/watch?v=W1BLo1sSMyA)
 
 ## The Rolling Stones
 - [Angie](https://www.youtube.com/watch?v=RcZn2-bGXqQ)
