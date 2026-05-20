@@ -68,6 +68,13 @@
 ## Amy Winehouse
 - [Back To Black](https://www.youtube.com/watch?v=TJAfLE39ZZ8)
 
+## Aretha Franklin
+- [I Say A Little Prayer](https://www.youtube.com/watch?v=TDyiREoBw0o)
+- [Let It Be (Beatles cover)](https://www.youtube.com/watch?v=uClgp4NTDyk)
+- [Respect](https://www.youtube.com/watch?v=A134hShx_gw)
+- [Think](https://www.youtube.com/watch?v=P9yIoSpWWNE)
+- [(You Make Me Feel Like) A Natural Woman](https://www.youtube.com/watch?v=8jCFzreP1ng)
+
 ## Audioslave
 - [Be yourself](https://www.youtube.com/watch?v=WC5FdFlUcl0)
 - [Like a stone](https://www.youtube.com/watch?v=7QU1nvuxaMA)
