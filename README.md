@@ -590,6 +590,7 @@
 
 ## Nazareth 
 - [Love Hurts](https://www.youtube.com/watch?v=vOn0z0IRVN8)
+- [Love Hurts (Top Of The Pops 1977 HD video)](www.youtube.com/watch?v=fsnEhf-ONME)
 
 ## Neil Diamond
 - [Cherry, Cherry (Audio)](https://www.youtube.com/watch?v=0QsTMqUfDDw)
