@@ -69,7 +69,7 @@
 - [Back To Black](https://www.youtube.com/watch?v=TJAfLE39ZZ8)
 
 ## Aretha Franklin
-- [I Say A Little Prayer](https://www.youtube.com/watch?v=TDyiREoBw0o)
+- [I Say A tle Prayer](https://www.youtube.com/watch?v=TDyiREoBw0o)
 - [Let It Be (Beatles cover)](https://www.youtube.com/watch?v=uClgp4NTDyk)
 - [Respect](https://www.youtube.com/watch?v=A134hShx_gw)
 - [Think](https://www.youtube.com/watch?v=P9yIoSpWWNE)
@@ -140,7 +140,7 @@
 ## Bob Marley & The Wailers
 - [Is This Love](https://www.youtube.com/watch?v=69RdQFDuYPI)
 - [No Woman, No Cry](https://www.youtube.com/watch?v=IT8XvzIfi4U)
-- [Three Little Birds](https://www.youtube.com/watch?v=HNBCVM4KbUM)
+- [Three tle Birds](https://www.youtube.com/watch?v=HNBCVM4KbUM)
 
 ## Bob Seger
 - [Old Time Rock & Roll (audio)](https://www.youtube.com/watch?v=N9G-lvqaBfM)
@@ -528,6 +528,24 @@
 
 ## Liz Phair
 - [Hey Lou](https://www.youtube.com/watch?v=K4LcFHMjH9k)
+
+## Lucio Battisti
+- [7 e 40](https://www.youtube.com/watch?v=BI34kyYTYzw)
+- [29 settembre](https://www.youtube.com/watch?v=hKVpwbTE3fw)
+- [Acqua azzurra, acqua chiara](https://www.youtube.com/watch?v=Q6JW3KKeGKQ)
+- [Ancora tu](https://www.youtube.com/watch?v=cVSioCwCTtg)
+- [Comunque bella](https://www.youtube.com/watch?v=KrMiTqTYX2E)
+- [E penso a te](https://www.youtube.com/watch?v=saHp1pzgTJQ)
+- [Emozioni](https://www.youtube.com/watch?v=VRvKMkdve3M)
+- [Fiori rosa, fiori di pesco](https://www.youtube.com/watch?v=9Fwlda1-Dn4)
+- [I giardini di marzo](https://www.youtube.com/watch?v=2N4gmDskPFo)
+- [Il mio canto libero](https://www.youtube.com/watch?v=UtUHEsPfjjE)
+- [Io vorrei... non vorrei... ma se vuoi](https://www.youtube.com/watch?v=rub00ouRQ6I)
+- [La canzone del sole](https://www.youtube.com/watch?v=Vu005eUjTMI)
+- [Mi ritorni in mente](https://www.youtube.com/watch?v=JPPz43HG1Z0)
+- [Si, viaggiare](https://www.youtube.com/watch?v=U6NqD0P0eY8)
+- [Un'avventura](https://www.youtube.com/watch?v=mfm1eLsfz8c)
+- [Una donna per amico](https://www.youtube.com/watch?v=jHjS1vRYjtY)
 
 ## Lynyrd Skynyrd
 - [Call me the Breeze](https://www.youtube.com/watch?v=OSx-ADqyD9M)
