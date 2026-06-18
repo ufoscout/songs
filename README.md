@@ -571,6 +571,12 @@
 ## Marvin Gaye
 - [I heard it through the grapevine](https://www.youtube.com/watch?v=cXWHpbpNdHE)
 
+## Matia Bazar
+- [Ti sento](https://www.youtube.com/watch?v=qGkPK4ZK22k)
+- [Ti Sento - TopPop](https://www.youtube.com/watch?v=FOadUytpMEU)
+- [Vacanze Romane](https://www.youtube.com/watch?v=1yoTFGLqkFw)
+- [Vacanze Romane - TopPop](https://www.youtube.com/watch?v=Hzr-0XIk0no)
+
 ## Mazzy Star
  - [Fade Into You](https://www.youtube.com/watch?v=ImKY6TZEyrI)
 
@@ -590,6 +596,12 @@
 
 ## Midnight Oil
 - [Beds Are Burning](https://www.youtube.com/watch?v=ejorQVy3m8E)
+
+## Mina
+- [Amor mio](https://www.youtube.com/watch?v=26AL1MimpsE)
+- [Brava](https://www.youtube.com/watch?v=EDN-RWdR-vk)
+- [Io vivrò senza te (Live alla Bussola '72)](https://www.youtube.com/watch?v=0dWj7DqfPNQ)
+- [Se telefonando](https://www.youtube.com/watch?v=Hm5GLFX33PI)
 
 ## Mika
 - [Grace Kelly](https://www.youtube.com/watch?v=0CGVgAYJyjk)
