@@ -52,6 +52,9 @@
 ## a-ha
 - [Take On Me](https://www.youtube.com/watch?v=djV11Xbc914)
 
+## Alberto Fortis
+- [Settembre](https://www.youtube.com/watch?v=ptwA58W_MEs)
+
 ## Alice In Chains
 - [Man in the Box](https://www.youtube.com/watch?v=TAqZb52sgpU)
 
@@ -297,6 +300,11 @@
 
 ## Emerson, Lake & Palmer
 - [Fanfare For The Common Man](https://www.youtube.com/watch?v=c2zurZig4L8)
+
+## Equipe 84
+- [Ho in mente te](https://www.youtube.com/watch?v=3ItrFDHEi9g)
+- [Tutta mia la città](https://www.youtube.com/watch?v=UBGN8TbGWtA)
+- [Un angelo blu](https://www.youtube.com/watch?v=eP_2agr-gyQ)
 
 ## Eurythmics
 - [Sweet Dreams (Are Made Of This)](https://www.youtube.com/watch?v=qeMFqkcPYcg)
@@ -618,6 +626,10 @@
 - [Time Is Running Out](https://www.youtube.com/watch?v=O2IuJPh6h_A)
 - [Uprising](https://www.youtube.com/watch?v=w8KQmps-Sog)
 
+## Nada
+- [Amore disperato](https://www.youtube.com/watch?v=syYgio-zR0g)
+- [Ma che freddo fa](https://www.youtube.com/watch?v=SdB8kHEkBQ4)
+  
 ## Nazareth 
 - [Love Hurts](https://www.youtube.com/watch?v=vOn0z0IRVN8)
 - [Love Hurts (Top Of The Pops 1977 HD video)](www.youtube.com/watch?v=fsnEhf-ONME)
@@ -779,6 +791,10 @@
 
 ## Righteous Brothers
 - [Unchained Melody](https://www.youtube.com/watch?v=qiiyq2xrSI0)
+
+## Rino Gaetano
+- [Gianna](https://www.youtube.com/watch?v=laIH5AQqeH0)
+- [Ma il cielo è sempre più blu](https://www.youtube.com/watch?v=rfaihaFlcSg)
 
 ## Rival Sons
 - [Open My Eyes](https://www.youtube.com/watch?v=WnEZzLSPNZY)
